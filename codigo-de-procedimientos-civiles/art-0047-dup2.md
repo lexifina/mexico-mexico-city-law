@@ -1,3 +1,3 @@
-(REFORMADO, D.O.F. 30 DE DICIEMBRE DE 1975)
+(REFORMADO, D.O.F. 24 DE MAYO DE 1996)
 ARTICULO 47
-Los Jueces de Paz no son recusables; pero deben excusarse cuando estén impedidos, y, en tal caso, el negocio pasará al siguiente juzgado en número. Si los jueces impedidos no se excusaren, a queja de parte el superior impondrá corrección disciplinaria, y hará la anotación en el expediente del funcionario.
+Los jueces de paz no son recusables, pero deben excusarse cuando estén impedidos, y en tal caso, el negocio pasará al siguiente juzgado en número. Si los jueces impedidos no se excusaren, a queja de parte el Consejo de la Judicatura impondrá la corrección disciplinaria correspondiente haciendo la anotación en el expediente del funcionario.

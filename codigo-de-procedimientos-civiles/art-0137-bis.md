@@ -1,16 +1,18 @@
 ARTICULO 137 BIS
-(REFORMADO PRIMER PARRAFO, D.O.F. 14 DE MARZO DE 1973)
-La caducidad de la instancia operará de pleno derecho cualquiera que sea el estado del juicio desde el emplazamiento hasta antes de que concluya la audiencia de pruebas, alegatos y sentencia, si transcurridos 180 días hábiles contados a partir de la notificación de la última determinación judicial no hubiere promoción de cualquiera de la partes. Los efectos y formas de su declaración se sujetarán a las siguientes normas:
+(REFORMADO PRIMER PARRAFO, D.O.F. 24 DE MAYO DE 1996)
+Operará de pleno derecho la caducidad de la primera instancia cualquiera que sea el estado del juicio desde el emplazamiento hasta antes de que concluya la audiencia de pruebas, alegatos, y sentencia, si transcurridos ciento veinte días contados a partir de la notificación de la última determinación judicial no hubiere promoción de cualquiera de las partes.
+(ADICIONADO, D.O.F. 24 DE MAYO DE 1996)
+Los efectos y formas de su declaración se sujetarán a las siguientes normas:
 (ADICIONADA, D.O.F. 31 DE ENERO DE 1964)
 I.- La caducidad de la instancia es de orden público, irrenunciable y no puede ser materia de convenios entre las partes. El juez la declarará de oficio o a petición de cualquiera de las partes cuando concurran las circunstancias a que se refiere el presente artículo.
 (ADICIONADA, D.O.F. 31 DE ENERO DE 1964)
 II.- La caducidad extingue el proceso pero no la acción; en consecuencia se puede iniciar un nuevo juicio, sin perjuicio de lo dispuesto en la fracción V de este artículo.
-(ADICIONADA, D.O.F. 31 DE ENERO DE 1964)
-III.- La caducidad de la primera instancia convierte en ineficaces las actuaciones del juicio y las cosas deben volver al estado que tenían antes de la presentación de la demanda y se levantarán los embargos preventivos y cautelares. Se exceptúan de la ineficacia susodicha las resoluciones firmes sobre competencia, litispendencia, conexidad, personalidad y capacidad de los litigantes, que regirán en el juicio ulterior si se promoviere. Las pruebas rendidas en el proceso extinguido por caducidad podrán ser invocadas en el nuevo si se promoviere siempre que se ofrezcan y precisen en la forma legal.
-(ADICIONADA, D.O.F. 31 DE ENERO DE 1964)
-IV.- La caducidad de la segunda instancia deja firmes las resoluciones apeladas. Así lo declarará el Tribunal de Apelación.
-(REFORMADA, D.O.F. 14 DE MARZO DE 1973)
-V.- La caducidad de los incidentes se causa por el transcurso de 180 días hábiles contados a partir de la notificación de la última determinación judicial, sin promoción; la declaración respectiva sólo afectará a las actuaciones del incidente sin abarcar las de la instancia principal aunque haya quedado en suspenso ésta por la aprobación de aquél.
+(REFORMADA, D.O.F. 24 DE MAYO DE 1996)
+III.- La caducidad de la primera instancia convierte en ineficaces las actuaciones del juicio y las cosas deben volver al estado que tenían antes de la presentación de la demanda y se levantarán los embargos preventivos y cautelares. Se exceptúan de la ineficacia referida las resoluciones firmes sobre competencia, litispendencia, conexidad, personalidad y capacidad de los litigantes, que regirán en el juicio ulterior si se promoviere. Las pruebas rendidas en el proceso extinguido por caducidad, podrán ser invocadas en el nuevo, si se promoviere, siempre que se ofrezcan y precisen en la forma legal;
+(REFORMADA, D.O.F. 24 DE MAYO DE 1996)
+IV.- La caducidad de la segunda instancia se da si en el lapso de sesenta días contados a partir de la notificación de la última determinación judicial ninguna de las partes hubiere promovido impulsando el procedimiento y su efecto será dejar firme lo actuado ante el juez;
+(REFORMADA, D.O.F. 24 DE MAYO DE 1996)
+V.- La caducidad de los incidentes se causa por el transcurso de treinta días contados a partir de la notificación de la última determinación judicial, sin promoción alguna de las partes; la declaración respectiva sólo afectará a las actuaciones del incidente sin abarcar las de la instancia principal aunque haya quedado en suspenso ésta por la aprobación de aquél;
 (ADICIONADA, D.O.F. 31 DE ENERO DE 1964)
 VI.- Para los efectos del artículo 1168 fracción II del Código Civil se equipara a la desestimación de la demanda la declaración de caducidad del proceso.
 VII.- (DEROGADA, D.O.F. 14 DE MARZO DE 1973)

@@ -1,2 +1,3 @@
+(REFORMADO, D.O.F. 24 DE MAYO DE 1996)
 ARTICULO 21
-Las sentencias se dictarán a verdad sabida sin necesidad de sujetarse a las reglas sobre estimación de las pruebas sino apreciando los hechos según los jueces lo creyeren debido en conciencia.
+Las sentencias que se pronuncien en los juzgados de paz en materia civil deberán ajustarse a lo dispuesto por el artículo 81 de este código.
