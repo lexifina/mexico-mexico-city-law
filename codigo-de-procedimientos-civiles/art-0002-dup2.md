@@ -1,7 +1,3 @@
+(REFORMADO, D.O.F. 27 DE DICIEMBRE DE 1983)
 ARTICULO 2
-(REFORMADO PRIMER PARRAFO, D.O.F. 30 DE DICIEMBRE DE 1975)
-Conocerán los Jueces de Paz, en materia civil o mercantil de los juicios cuya cuantía no exceda de cinco mil pesos.
-(REFORMADO, D.O.F. 24 DE MARZO DE 1971)
-Para estimar el interés del negocio se atenderá a lo que el actor demande. Los réditos, daños y perjuicios no serán tenidos en consideración si son posteriores a la presentación de la demanda, aun cuando se reclamen en ella.
-(REFORMADO, D.O.F. 24 DE MARZO DE 1971)
-Cuando se trate de arrendamiento o se demande el cumplimiento de una obligación consistente en prestaciones periódicas, se computará el importe de las prestaciones en un año, a no ser que se tratare de prestaciones vencidas, en cuyo caso se estará a lo dispuesto en la primera parte de este artículo.
+Conocerán los Jueces de Paz, en materia civil, de los juicios cuya cuantía no exceda de 182 veces el salario mínimo diario general vigente en el Distrito Federal. Para estimar el interés del negocio se atenderá a lo que el actor demande. Los réditos, daños y perjuicios no serán tenidos en consideración si son posteriores a la presentación de la demanda, aun cuando se reclamen en ella. Cuando se trate de arrendamiento o se demande el cumplimiento de una obligación consistente en prestaciones periódicas, se computará el importe de las prestaciones de un año, a no ser que se trate de prestaciones vencidas, en cuyo caso se estará a su monto total.
