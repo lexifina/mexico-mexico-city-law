@@ -1,6 +1,9 @@
-(REFORMADO, D.O.F. 14 DE ENERO DE 1987)
 ARTICULO 272-A
-Una vez contestada la demanda y, en su caso, la reconvención el juez señalará de inmediato fecha y hora para la celebración de una audiencia previa y de conciliación dentro de los diez días siguientes, dando vista a la parte que corresponda con las excepciones que se hubieren opuesto en su contra, por el término de tres días.
+(REFORMADO PRIMER PARRAFO, G.O. 25 DE MAYO DE 2000)
+Una vez contestada la demanda, y en su caso, la reconvención el Juez señalará de inmediato fecha y hora para la celebración de una audiencia previa y de conciliación dentro de los diez siguientes (sic), dando vista a la parte que corresponda con las excepciones que se hubieren opuesto en su contra, por el término de tres días. En los juicios de divorcio necesario en que se invoquen como causales únicamente las fracciones XI, XVII o XVIII del artículo 267 del Código Civil, la audiencia previa y de conciliación se fijará dentro de los cinco días siguientes a la contestación de la demanda y, en su caso, de la reconvención.
+(REFORMADO, D.O.F. 14 DE ENERO DE 1987)
 Si una de las partes no concurre sin causa justificada, el juez la sancionará con una multa hasta por los montos establecidos en la fracción II del artículo 62 de este código. Si dejaren de concurrir ambas partes sin justificación, el juzgador las sancionará de igual manera. En ambos casos el juez procederá a examinar las cuestiones relativas a la depuración del juicio.
+(REFORMADO, D.O.F. 14 DE ENERO DE 1987)
 Si asistieran las dos partes, el juez examinará las cuestiones relativas a la legitimación procesal y luego se procederá a procurar la conciliación que estará a cargo del conciliador adscrito al juzgado. El conciliador preparará y propondrá a las partes, alternativas de solución al litigio. Si los interesados llegan a un convenio, el juez lo aprobará de plano si procede legalmente y dicho pacto tendrá fuerza de cosa juzgada.
+(REFORMADO, D.O.F. 14 DE ENERO DE 1987)
 En caso de desacuerdo entre los litigantes, la audiencia proseguirá y el juez, que dispondrá de amplias facultades de dirección procesal, examinará, en su caso, las excepciones de conexidad, litispendencia y cosa juzgada, con el fin de depurar el procedimiento.

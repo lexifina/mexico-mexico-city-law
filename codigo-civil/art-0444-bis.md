@@ -1,2 +1,2 @@
-(ADICIONADO, D.O.F. 30 DE DICIEMBRE DE 1997)
-ARTICULO 444 bis.- La patria potestad podrá ser limitada cuando el que la ejerce incurra en conductas de violencia familiar previstas en el artículo 323 ter de este Código, en contra de las personas sobre las cuales la ejerza.
+(REFORMADO, G.O. 25 DE MAYO DE 2000)
+ARTICULO 444 Bis.- La patria potestad podrá ser limitada en los casos de divorcio o separación, tomando en cuanta (sic) lo que dispone este Código.

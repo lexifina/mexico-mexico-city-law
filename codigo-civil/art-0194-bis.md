@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 25 DE MAYO DE 2000)
+ARTICULO 194 Bis.- El cónyuge que haya malversado, ocultado, dispuesto o administrado los bienes de la sociedad conyugal con dolo, culpa o negligencia, perderá su derecho a la parte correspondiente de dichos bienes en favor del otro cónyuge. En caso de que los bienes dejen de formar parte de dicha sociedad de bienes, el cónyuge que haya procedido en los términos señalados en este artículo, deberá pagar al otro la parte que le correspondía de dichos bienes, así como los daños y perjuicios que se le ocasionen.
