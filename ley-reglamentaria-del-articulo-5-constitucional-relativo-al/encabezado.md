@@ -6,5 +6,6 @@ Que el H. Congreso de la Unión, se ha servido dirigirme el siguiente
 D E C R E T O :
 "El Congreso de los Estados Unidos Mexicanos, decreta:
 LEY REGLAMENTARIA DE LOS ARTICULOS 4o. y 5o. CONSTITUCIONALES, RELATIVOS AL EJERCICIO DE LAS PROFESIONES EN EL DISTRITO Y TERRITORIOS FEDERALES
+(REFORMADA SU DENOMINACION, D.O.F. 2 DE ENERO DE 1974)
 CAPITULO I
-De las Profesiones Técnico Científicas que necesitan título para su ejercicio
+Disposiciones Generales
