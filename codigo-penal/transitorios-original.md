@@ -1,8 +1,8 @@
 TRANSITORIOS
 PRIMERO: Este Código, con excepción de lo señalado en estos artículos transitorios, entrará en vigor a los ciento veinte días de su publicación en la Gaceta Oficial del Distrito Federal. Para su mayor difusión se publicará este Decreto en el Diario Oficial de la Federación.
 SEGUNDO: La Asamblea Legislativa del Distrito Federal, previa a la expedición del Nuevo Código de Procedimientos Penales para el Distrito Federal, realizará la modificación a los ordenamientos correspondientes para la adecuada aplicación de la legislación penal.
-(REFORMADO, G.O. 3 DE OCTUBRE DE 2002)
-TERCERO: La Asamblea Legislativa del Distrito Federal, expedirá la legislación que establezca el Fondo para la Reparación del Daño a la Víctima del Delito.
+(REFORMADO, G.O. 22 DE ABRIL DE 2003)
+TERCERO: La Asamblea Legislativa del Distrito Federal, expedirá la legislación para la Atención y Apoyo a las Víctimas del Delito y la aplicación del fondo correspondiente.
 CUARTO: A partir de la entrada en vigor de este Decreto, para el caso en que este Código contemple una descripción legal de una conducta delictiva que en el anterior Código Penal del Distrito Federal se contemplaba como delito y por virtud de las presentes reformas, se denomina, penaliza o agrava de forma diversa, siempre y cuando las conductas y los hechos respondan a la descripción que ahora se establecen, se estará a lo siguiente:
 I. En los procesos incoados, en los que aun no se formulen conclusiones acusatorias el Ministerio Público las formulará de conformidad con la traslación del tipo que resulte;
 II. En los procesos pendientes de dictarse sentencia en primera y segunda instancia, el juez o el Tribunal, respectivamente podrán efectuar la traslación del tipo de conformidad con la conducta que se haya probado y sus modalidades; y
