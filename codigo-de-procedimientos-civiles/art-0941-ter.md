@@ -1,0 +1,5 @@
+(ADICIONADO, G.O. 6 DE SEPTIEMBRE DE 2004)
+ARTICULO 941 TER.
+No será obstáculo para regular el derecho de convivencia de manera provisional, el hecho de que una de las partes manifieste unilateralmente y sin estar reconocido por resolución judicial firme, que ha habido violencia familiar en contra de los menores o algún otro de los miembros del núcleo familiar.
+Sin embargo, tales aseveraciones deberán ser tomadas en cuenta por el juez de lo familiar prudentemente. Por tanto, en caso de duda, y para salvaguarda de los menores, podrá ordenar que la convivencia, se realice en los centros e instituciones destinados para tal efecto, únicamente durante el procedimiento. Y no existiendo precedente de riesgo o peligro para el menor no será ordenado por el Juez de lo familiar las convivencias en las instituciones destinadas para tal efecto.
+Para el caso de incumplimiento de las resoluciones que ordenen la convivencia con los menores, deberán aplicarse las sanciones que correspondan según los ordenamientos legales aplicables.
