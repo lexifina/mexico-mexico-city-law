@@ -1,3 +1,5 @@
 (REFORMADO, D.O.F. 2 DE OCTUBRE DE 1984)
 ARTICULO 2
 Conocerán los jueces de paz, en materia civil, de los juicios cuya cuantía no exceda de 182 veces el salario mínimo diario general vigente en el Distrito Federal, a excepción de todo lo relativo a la materia de arrendamiento de inmuebles que será competencia de los jueces de primera instancia. Para estimar el interés del negocio se atenderá a lo que el actor demande. Los réditos, daños y perjuicios no serán tomados en consideración si son posteriores a la presentación de la demanda, aun cuando se reclamen en ella. Cuando se demande el cumplimiento de una obligación consistente en prestaciones periódicas se computará el importe de las prestaciones de un año, a no ser que se trate de prestaciones vencidas en cuyo caso se estará a su monto total.
+(REFORMADO [N. DE E. ADICIONADO], D.O.F. 7 DE FEBRERO DE 1985)
+Cuando se trate de cuestiones de arrendamiento inmobiliario serán competentes los Jueces del Arrendamiento Inmobiliario en los términos fijados por la Ley.
