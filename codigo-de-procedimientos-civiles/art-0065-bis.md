@@ -1,0 +1,3 @@
+(ADICIONADO, D.O.F. 21 DE ENERO DE 1985)
+ARTICULO 65 BIS
+En el caso de comprobarse la realización de cualquier acción tendiente a burlar el turno establecido en las Oficialías de Partes Comunes, una vez presentado un escrito por el cual se inicie un procedimiento, ya sea exhibiendo varios de éstos para elegir el Juzgado que convenga, o desistiéndose de la instancia más de una vez, sin acreditar la necesidad de hacerlo, o cualquiera acción similar, la parte promovente y sus abogados patronos se harán acreedores, solidariamente, a una multa que no será menor de quince, ni mayor de noventa días de salario, tomándose como base el mínimo general diario vigente en el Distrito Federal, y que será impuesta por el Presidente del Tribunal.

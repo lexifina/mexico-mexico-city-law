@@ -1,9 +1,10 @@
 ARTICULO 20
-Concurriendo al juzgado las partes en virtud de la citación, se abrirá la audiencia y en ella se observarán las siguientes prevenciones:
+(REFORMADO PRIMER PARRAFO, D.O.F. 21 DE ENERO DE 1985)
+Concurriendo al Juzgado las partes, en virtud de la citación, se abrirá la audiencia y en ella se observarán las siguientes prevenciones:
 I.- Expondrán oralmente sus pretensiones por su orden, el actor su demanda y el reo su contestación y exhibirán los documentos u objetos que estimen conducentes a su defensa y presentarán a los testigos y peritos que pretendan sean oídos;
 II.- Las partes pueden hacerse mutuamente las preguntas que quieran, interrogar a los testigos y peritos y en general, presentar todas las pruebas que se puedan rendir desde luego;
-(REFORMADA, D.O.F. 30 DE DICIEMBRE DE 1975)
-III.- Todas las acciones y excepciones o defensas se harán valer en el acto mismo de la audiencia, sin sustanciar artículos o incidentes de previo pronunciamiento. Si de lo que expongan o aprueben las partes resultara demostrada la procedencia de una excepción dilatoria, el juez lo declarará así, desde luego, y dará por terminada la audiencia. Ante los Jueces de Paz, sólo se admitirá reconvención hasta por cinco mil pesos;
+(REFORMADA, D.O.F. 21 DE ENERO DE 1985)
+III.- Todas las acciones y excepciones o defensas se harán valer en el acto mismo de la audiencia, sin sustanciar artículos o incidentes de previo pronunciamiento. Si de lo que expongan o aprueben las partes resultara demostrada la procedencia de una excepción dilatoria, el Juez lo declarará así, desde luego, y dará por terminada la audiencia. Ante los Jueces de Paz, sólo se admitirá reconvención hasta por ciento ochenta y dos veces el salario mínimo general diario vigente en el Distrito Federal;
 IV.- El juez podrá hacer libremente las preguntas que juzgue oportunas a cuantas personas estuvieren presentes en la audiencia, carear a las partes entre sí o con los testigos y a éstos, los unos con los otros, examinar documentos, objetos o lugares y hacerlos reconocer por peritos;
 (F. DE E., 27 DE SEPTIEMBRE DE 1932)
 V.- Cuando una de las partes lo pida, la otra deberá ser citada desde el emplazamiento y concurrirá personalmente a la audiencia para contestar las preguntas que se le hagan a menos de que el juez la exima por causa de enfermedad, ausencia, ocupación urgente u otro motivo fundado. Hecho el llamamiento y desobedecido por el citado, o rehusándose éste a contestar si comparece, el juez podrá tener por ciertas las afirmaciones de la otra parte;
