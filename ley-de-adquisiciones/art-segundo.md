@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- En un plazo que no excederá de los 180 días naturales contados a partir de la fecha de la entrada en vigor de la presente Ley, se emitirá el Reglamento de la Ley de Adquisiciones para el Distrito Federal.

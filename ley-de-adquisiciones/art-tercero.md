@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Los procedimientos de Licitación pública que se encuentren en proceso y los contratos adjudicados a la entrada en vigor de esta Ley, serán llevados a cabo de conformidad con la Ley de Adquisiciones y Obras Públicas hasta su terminación.
