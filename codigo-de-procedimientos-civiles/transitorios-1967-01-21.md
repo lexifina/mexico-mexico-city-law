@@ -1,0 +1,4 @@
+D.O.F. 21 DE ENERO DE 1967.
+ARTICULO PRIMERO.- Se derogan los artículos 265, 267, 268, 269, 270, 436, 455, 458, 459, 460, 472, 474, 475 y el segundo párafo (sic) del 486 del Código de Procedimientos Civiles para el Distrito Federal y Territorios, así como los artículos 2o. fracción V, 58 fracción III, 72, 73, 74, 75 fracción I, 78, fracción VI, el primer párrafo del 154, 155 y 157 de la Ley Orgánica de los Tribunales de Justicia del Fuero Común del Distrito y Territorios Federales, y las demás disposiciones legales que se opongan al presente Decreto.
+ARTICULO SEGUNDO.- El presente Decreto entrará en vigor treinta días después de su publicación en el "Diario Oficial" de la Federación.
+ARTICULO TERCERO.- Se faculta al Tribunal Pleno para tomar todos los acuerdos que considere necesarios para la aplicación de las disposiciones del presente Decreto.
