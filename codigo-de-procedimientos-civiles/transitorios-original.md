@@ -42,3 +42,4 @@ Lo que comunico a usted para su publicación y demás fines.
 Sufragio Efectivo. No Reelección.
 México, D.F., a 30 de agosto de 1932.- P. O. del Secretario de Gobernación, el Subsecretario, Eduardo Vasconcelos.- Rúbrica.
 Al C......
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.

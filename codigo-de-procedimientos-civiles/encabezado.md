@@ -1,6 +1,5 @@
 CODIGO DE PROCEDIMIENTOS CIVILES PARA EL DISTRITO FEDERAL Y TERRITORIOS FEDERALES
 Código publicado en el Diario Oficial de la Federación los días 1o. al 21 de septiembre de 1932.
-CODIGO de Procedimientos Civiles para el Distrito Federal y Territorios.
 Al margen un sello que dice: Poder Ejecutivo Federal.- Estados Unidos Mexicanos.- México.- Secretaría de Gobernación.
 El C. Presidente Constitucional de los Estados Unidos Mexicanos, se ha servido dirigirme el siguiente Código:
 "PASCUAL ORTIZ RUBIO, Presidente Constitucional de los Estados Unidos Mexicanos, a sus habitantes, sabed:
