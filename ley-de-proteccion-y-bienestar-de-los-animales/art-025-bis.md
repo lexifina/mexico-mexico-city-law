@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 23 DE JULIO DE 2026)
+Artículo 25 Bis. Sólo podrán ofrecer, promover, publicar, o difundir la compra o venta de perros y gatos por medios electrónicos, redes sociales, plataformas digitales o cualquier tecnología de la información, las personas físicas o morales que cuenten con los registros y autorizaciones para comercializar; sin perjuicio del cumplimiento de las obligaciones previstas en el artículo 28 bis del presente ordenamiento.

@@ -22,6 +22,8 @@ i. (DEROGADO, G.O. 27 DE JUNIO DE 2025)
 j) Detener y remitir ante la autoridad competente a las personas probables infractoras que realicen y contribuyan en actos especificados en el artículo 25 de la presente ley.
 (ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 III. Coadyuvar en el cumplimiento de las disposiciones de esta Ley;
+(ADICIONADA, G.O. 23 DE JULIO DE 2026)
+III Bis. Coadyuvar, previa solicitud de la Procuraduría, en el monitoreo de redes sociales y plataformas tecnológicas, dentro de los procedimientos de atención de denuncias, verificación y sanción que conforme a sus facultades este substanciando;
 (REFORMADA, G.O. 18 DE JUNIO DE 2012)
 IV. Ordenar las medidas de seguridad relacionadas con las fracciones I y IV del artículo 59 de la presente Ley;
 (REFORMADA, G.O. 18 DE JUNIO DE 2012)
