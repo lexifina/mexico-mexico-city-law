@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 13 DE ENERO DE 2004)
+ARTÍCULO 349 TER. En caso de concurso de delitos, en lo referente a la reparación del daño, tendrá preferencia la reparación del daño ambiental, con excepción de la reparación de los daños a la salud, integridad de las personas o a la vida.
