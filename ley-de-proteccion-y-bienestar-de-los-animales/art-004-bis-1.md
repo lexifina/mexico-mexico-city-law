@@ -1,6 +1,8 @@
 (REFORMADO, G.O. 26 DE DICIEMBRE DE 2023)
 Artículo 4° Bis 1. Son obligaciones de las personas tutoras responsables con relación a sus de animales de compañía:
 I. Inscribir al animal, en el RUAC directamente o durante las campañas masivas en materia de vacunación, antirrábicas, sanitarias para el control y erradicación de enfermedades zoonóticas, de desparasitación y de esterilización que lleven a cabo las autoridades de la Ciudad de México. La omisión de esta disposición dará origen a las sanciones de carácter administrativo establecidas en la presente Ley;
+(ADICIONADO, G.O. 24 DE DICIEMBRE DE 2025)
+Para el caso de establecimientos mercantiles, albergues o refugios para perros y gatos, la obligación establecida en el párrafo inmediato anterior, deberá ser cumplida por la persona adquiriente del animal;
 II. Proporcionar agua limpia y fresca a libre acceso;
 III. Proporcionar alimento balanceado en cantidad acorde a su especie, estado fisiológico y edad, servido en un recipiente limpio;
 IV. Mantener vigente el cuadro de vacunación y medicina preventiva de acuerdo con su especie, estado fisiológico y edad

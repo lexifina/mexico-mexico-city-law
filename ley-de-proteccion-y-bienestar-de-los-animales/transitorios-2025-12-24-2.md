@@ -1,0 +1,6 @@
+G.O. 24 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN EL ARTÍCULO 27 BIS; LAS FRACCIONES IV, VI, VII, VIII, IX, X Y XI DEL ARTÍCULO 28 BIS; Y LA FRACCIÓN IV DEL ARTÍCULO 65; ASIMISMO, SE ADICIONAN UN PÁRRAFO SEGUNDO A LA FRACCIÓN I DEL ARTÍCULO 4 BIS 1; LAS FRACCIONES V BIS Y V TER AL ARTÍCULO 25, TODAS DE LA LEY DE PROTECCIÓN Y BIENESTAR DE LOS ANIMALES DE LA CIUDAD DE MÉXICO".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno, para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor a los 365 días naturales siguientes a los de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. Dentro de los ciento ochenta días hábiles siguientes a la publicación del presente Decreto, el Gobierno de la Ciudad de México realizará la actualización y armonización reglamentaria correspondiente.
+CUARTO. Dentro de los ciento ochenta días hábiles siguientes a la publicación del presente Decreto, la Secretaría de Medio Ambiente de la Ciudad de México emitirá los lineamientos que deberán cumplir las locaciones o espacios en los que los animales destinados a la comercialización deberán (sic) bajo condiciones adecuadas de bienestar, alojamiento, sanidad, seguridad y protección.
