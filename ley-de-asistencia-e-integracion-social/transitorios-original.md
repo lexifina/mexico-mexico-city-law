@@ -1,0 +1,8 @@
+TRANSITORIOS
+PRIMERO.- Túrnese el presente Dictamen de Ley al Jefe de Gobierno del Distrito Federal, para su promulgación.
+SEGUNDO.- La presente Ley entrará en vigor al día siguiente de su publicación en la Gaceta Oficial del Distrito Federal.
+TERCERO.- No serán aplicables todas las disposiciones de carácter local que se opongan a este ordenamiento
+CUARTO.- A partir de la publicación de este ordenamiento, se tienen noventa días para la integración del Registro y Directorio de las instituciones prestadores de los servicios de asistencia e integración social del Distrito Federal.
+QUINTO.- Se derogan todas las disposiciones que se opongan a este ordenamiento.
+Salón de sesiones de la Asamblea Legislativa del Distrito Federal, a 16 de noviembre de mil novecientos noventa y nueve.- POR LA MESA DIRECTIVA.- DIP. FERNANDO DE GARAY Y ARENAS, PRESIDENTE.- DIP. FRANCISCO ORTIZ AYALA, SECRETARIO.- FIRMAS.
+En cumplimiento de lo dispuesto por los artículos 122, apartado C, Base Segunda, fracción II, inciso b), de la Constitución Política de los Estados Unidos Mexicanos; 48, 49 y 67, fracción II del Estatuto de Gobierno del Distrito Federal, y para su debida publicación y observancia, expido el presente Decreto Promulgatorio, en la Residencia Oficial de la Jefa de Gobierno del Distrito Federal, en la Ciudad de México, a los dos días del mes de diciembre de mil novecientos noventa y nueve.- LA JEFA DE GOBIERNO DEL DISTRITO FEDERAL, ROSARIO ROBLES BERLANGA.- FIRMA.- EL SECRETARIO DE GOBIERNO, LEÓNEL GODOY RANGEL.- FIRMA.- EL SECRETARIO DE SALUD, ARMANDO CORDERA PASTOR.- FIRMA.- LA SECRETARIA DE DESARROLLO SOCIAL, CLARA JUSIDMAN RAPOPORT.- FIRMA.- EL SECRETARIO DE FINANZAS, ARMANDO LÓPEZ FERNÁNDEZ.- FIRMA.
