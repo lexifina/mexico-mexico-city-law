@@ -1,0 +1,7 @@
+(ADICIONADO, D.O.F. 10 DE ENERO DE 1986)
+ARTICULO 272-A
+Una vez contestada la demanda, declarada la rebeldía o contestada la reconvención, el juez señalará de inmediato fecha y hora para la celebración de una audiencia previa y de conciliación dentro de los diez días siguientes, dando vista a la parte que corresponda, con las excepciones que se hubieren opuesto en su contra, por el término de tres días.
+Si una de las partes no concurre sin causa justificada, el juez la sancionará con multa hasta por los montos establecidos en la fracción II del artículo 62, de este Código. Si dejaren de concurrir ambas partes sin justificación, el juzgador las sancionará de igual manera. En ambos casos el juez se limitará a examinar las cuestiones relativas a la depuración del juicio.
+Si asistieren las dos partes, el juez examinará las cuestiones relativas a la legitimación procesal y luego se procederá a procurar la conciliación que estará a cargo del conciliador adscrito al juzgado. El conciliador preparará y propondrá a las partes, alternativas de solución al litigio.
+Si los interesados llegan a un convenio, el juez lo aprobará de plano si procede legalmente y dicho pacto tendrá fuerza de cosa juzgada.
+En caso de desacuerdo entre los litigantes la audiencia proseguirá y el juez, que dispondrá de amplias facultades de dirección procesal, examinará, en su caso, la regularidad de la demanda y de la contestación, la conexidad, la litispendencia y la cosa juzgada, con el fin de depurar el procedimiento.

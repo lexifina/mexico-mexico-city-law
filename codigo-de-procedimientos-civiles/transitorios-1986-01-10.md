@@ -1,0 +1,5 @@
+D.O.F. 10 DE ENERO DE 1986.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Diario Oficial de la Federación.
+ARTICULO SEGUNDO.- Los asuntos que se encuentren en tramitación al momento de entrar en vigor las reformas dispuestas en el presente Decreto se regirán por estas disposiciones, salvo acuerdo en contrario de las partes, en cuyo caso continuarán su tramitación conforme a las normas anteriormente vigentes.
+Si ya se hubiere resuelto la suspensión por tratarse de un artículo de previo y especial pronunciamiento, el juicio correspondiente se regirá por las normas vigentes con anterioridad a las reformas dispuestas por este Decreto.
+ARTICULO TERCERO.- Los conciliadores a que se refiere el artículo 272-A, serán designados en la medida de las posibilidades presupuestales. Entre tanto son nombrados los conciliadores, el Pleno del Tribunal podrá determinar que sus funciones sean desempeñadas por los secretarios judiciales o por pasantes en Derecho, fijándose en el presupuesto correspondiente los emolumentos reservados para el desempeño de este servicio.
