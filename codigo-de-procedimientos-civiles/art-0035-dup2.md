@@ -1,0 +1,2 @@
+ARTICULO 35
+El tercero que considere perjudicados sus derechos al ejecutarse la sentencia ocurrirá al juez de paz, presentando sus pruebas y el juez, con audiencia inmediata de las partes, resolverá si subsiste o no el secuestro o el acto de ejecución practicado, sin decidir sobre la propiedad de la cosa ni sobre otros hechos controvertidos.

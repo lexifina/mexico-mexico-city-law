@@ -1,0 +1,2 @@
+ARTICULO 30
+El remate de bienes muebles se hará en la forma que determina el artículo 598 del Código de Procedimientos Civiles. Si se tratare de bienes raíces se anunciará el remate por medio de avisos que se fijen en los lugares de costumbre y en la puerta del Juzgado, y se hará previa citación de los acreedores que resulten del certificado de gravámenes que sin causa de derechos expedirá el registrador público de la propiedad. El avalúo se hará por medio de cualquier clase de pruebas que el juez podrá allegar de oficio.

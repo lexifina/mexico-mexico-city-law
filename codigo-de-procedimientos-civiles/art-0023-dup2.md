@@ -1,0 +1,3 @@
+ARTICULO 23
+Contra las resoluciones pronunciadas por los jueces de paz no se dará más recurso que el de responsabilidad.
+Ejecución de las sentencias

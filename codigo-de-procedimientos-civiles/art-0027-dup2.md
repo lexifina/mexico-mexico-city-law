@@ -1,0 +1,2 @@
+ARTICULO 27
+Si no se hallare el condenado en su habitación, despacho, taller o establecimiento, la diligencia se practicará con la persona que se encuentre, y si no hubiere nadie, con un vecino y el gendarme del punto.
