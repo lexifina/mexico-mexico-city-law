@@ -1,0 +1,15 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor a los noventa días de su publicación en la Gaceta Oficial del Distrito Federal.
+SEGUNDO. Quedan abrogadas todas aquellas disposiciones legales que se opongan a lo dispuesto por la presente Ley.
+TERCERO. El reglamento del Heroico Cuerpo de Bomberos del Distrito Federal, deberá expedirse dentro de los noventa días siguientes a la fecha en que la presente Ley entre en vigor.
+CUARTO. El actual Jefe de bomberos del Distrito Federal, no tendrá ningún impedimento para ser nombrado Director General una vez que se haya conformado el Organismo Descentralizado.
+QUINTO. Los miembros de la Junta de Gobierno deberán ser nombrados a mas tardar el día primero de enero de 1999.
+SEXTO. En tanto se expide el Reglamento de la presente Ley, quedarán subsistentes las disposiciones de la Secretaría de Seguridad Pública en relación con acuerdos, oficios y disposiciones disciplinarias.
+SEPTIMO. A partir de la aprobación del presupuesto de egresos de 1999, se incluirá una partida especial para el Heroico Cuerpo de Bomberos del Distrito Federal, hasta entonces seguirá administrando su patrimonio la Secretaría de Seguridad Pública.
+OCTAVO. La Academia de Bomberos deberá comenzar a funcionar en 1999, aprovechándose las instalaciones en las que la fecha se lleva a cabo el adiestramiento de los bomberos, en tanto se construye su sede en un plazo no mayor a tres años.
+NOVENO. Todos aquellos bomberos que ostenten algún grado, permanecerán con el mismo o su equivalente una vez que entre en vigor la presente Ley.
+DECIMO. La antigüedad, prestaciones y demás derechos de que sean sujetos los miembros de la corporación, serán respetados al entrar en vigor la presente Ley.
+DECIMO PRIMERO. Los dictámenes a que se refiere la presente Ley los expedirá el Heroico Cuerpo de Bomberos del Distrito Federal, a partir de 1999, una vez que sean fijados los derechos en el Código Financiero del Distrito Federal.
+DECIMO SEGUNDO. Publíquese en la Gaceta Oficial del Distrito Federal y en el Diario Oficial de la Federación para su más amplia difusión.
+Salón de sesiones de la Asamblea Legislativa del Distrito Federal, I Legislatura a veintisiete de octubre de mil novecientos noventa y ocho.- POR LA MESA DIRECTIVA.- DIP. JESUS GALVAN MUÑOZ, PRESIDENTE.- DIP. PABLO DE ANDA MARQUEZ, SECRETARIO.- DIP. JOSE LUIS BENITEZ GIL, SECRETARIO.- RUBRICAS.
+En cumplimiento de lo dispuesto en el artículo 22, apartado C, Base Segunda, fracción II, inciso b), de la Constitución Política de los Estados Unidos Mexicanos; 48, 49 y 67, fracción II, del Estatuto de Gobierno del Distrito Federal, y para su debida publicación y observancia, expido el presente Decreto Promulgatorio en la Residencia del Jefe de Gobierno del Distrito Federal, en la Ciudad de México, a los seis días del mes de noviembre de mil novecientos noventa y ocho.- EL JEFE DE GOBIERNO DEL DISTRITO FEDERAL, CUAUHTÉMOC CÁRDENAS SOLÓRZANO.- RÚBRICA.- LA SECRETARIA DE GOBIERNO, ROSARIO ROBLES BERLANGA.- RUBRICA.
