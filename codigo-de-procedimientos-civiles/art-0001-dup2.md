@@ -1,2 +1,3 @@
+(REFORMADO, D.O.F. 23 DE DICIEMBRE DE 1974)
 ARTICULO 1
-Se establecen en la ciudad de México juzgados de paz en cada delegación o demarcación de policía; en el resto del Distrito Federal y en los Territorios, en las circunscripciones determinadas por la ley orgánica.
+En el Distrito Federal habrá los juzgados de paz que determine la Ley Orgánica de los Tribunales de Justicia del Fuero Común.
