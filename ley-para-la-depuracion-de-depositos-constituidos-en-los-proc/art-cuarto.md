@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- Cuando la solicitud no se haga directamente por quien tenga derecho a la devolución, el que promueva deberá acreditar su personalidad en la forma legal; bastando para ello, si se trata de mandatario, simple carta poder, que deberá ratificarse ante la autoridad facultada para resolver la petición.

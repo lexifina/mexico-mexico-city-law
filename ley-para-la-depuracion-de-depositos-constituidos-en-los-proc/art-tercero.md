@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- La devolución de los depósitos a que se refiere esta Ley deberá gestionarse ante la misma autoridad por cuyo acuerdo se hayan constituído o por la que legalmente substituya en el conocimiento del proceso respectivo.

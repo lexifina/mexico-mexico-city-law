@@ -1,0 +1,1 @@
+ARTICULO SEPTIMO.- Cuando se declare procedente la devolución de un depósito, por la autoridad a que se refiere el artículo 3°, ésta notificará la resolución respectiva al interesado y a la oficina o institución depositaria, para el efecto de que se cumpla dicha resolución.
