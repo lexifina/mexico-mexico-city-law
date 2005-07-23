@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 22 DE JULIO DE 2005)
+ARTÍCULO 190 TER. Cuando el responsable tenga parentesco, conviva o habite ocasional o permanentemente en el mismo espacio o domicilio con la victima, o se trate de tutor o curador, se le impondrán las mismas sanciones que se establecen en el artículo anterior, pero además perderá la patria potestad y cualquier derecho que pudiese tener sobre la victima, así mismo la autoridad judicial que conozca del asunto pondrá a éste a disposición y cuidado de la autoridad correspondiente en la materia.
