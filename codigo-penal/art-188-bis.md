@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 22 DE JULIO DE 2005)
+ARTÍCULO 188 BIS. Si los delitos contenidos en este capítulo son cometidos por quien se valiere de una función pública que estuviere ejerciendo, se le impondrá la tercera parte más de las penas que correspondan y destitución del empleo, cargo o comisión públicos e inhabilitación para desempeña (sic) otro, hasta por un tiempo igual al de la pena de prisión impuesta.
