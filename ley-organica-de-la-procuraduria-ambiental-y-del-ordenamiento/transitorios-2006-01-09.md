@@ -1,0 +1,8 @@
+G.O. 9 DE ENERO DE 2006.
+PRIMERO. El presente Decreto entrará en vigor el 1º de enero de 2006.
+SEGUNDO. Túrnese al Jefe de Gobierno del Distrito Federal para su debida promulgación y publicación en la Gaceta Oficial del Distrito Federal.
+TERCERO. Los procedimientos y recursos que correspondan a la Procuraduría en términos del presente Decreto, que a la fecha de su entrada en vigor se estén tramitando por otras instancias, se deberán atender por tales autoridades, hasta que se determine el archivo de los expedientes respectivos.
+CUARTO. El Consejo aprobará el proyecto de modificaciones al Reglamento de la Ley Orgánica de la Procuraduría Ambiental y del Ordenamiento Territorial del Distrito Federal, que con motivo del presente Decreto sean procedentes, dentro de los noventa días posteriores a su entrada en vigor, a fin de que posteriormente se remita a la consideración del Jefe de Gobierno del Distrito Federal para los efectos legales que correspondan. Hasta en tanto se expidan dichas modificaciones se continuará aplicando el Reglamento vigente a la fecha, en lo que no se oponga al presente Decreto.
+QUINTO. El periodo de cuatro años a que se refiere el artículo 9 de este Decreto, no será aplicable en la gestión del actual titular de la Procuraduría.
+SEXTO.- Durante el mes de enero de 2006, las Comisiones Unidas de Preservación del Medio Ambiente y Protección Ecológica y de Desarrollo e Infraestructura Urbana, deberán iniciar los procedimientos necesarios a fin de elegir o, en su caso, ratificar a los consejeros ciudadanos a que se refiere la presente ley.
+SÉPTIMO.- Se derogan todas las disposiciones jurídicas que se opongan al presente Decreto.

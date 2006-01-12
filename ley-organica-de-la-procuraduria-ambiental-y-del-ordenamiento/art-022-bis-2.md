@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
+Artículo 22 Bis 2. La denuncia sólo podrá presentarse dentro del plazo de un año, a partir de que se hubiera iniciado la ejecución de los actos, hechos u omisiones referidos en el artículo 22, o de que el denunciante hubiese tenido conocimiento de los mismos. En casos excepcionales, y tratándose de asuntos que impliquen afectaciones graves al ambiente, los recursos naturales y el ordenamiento territorial, la Procuraduría podrá ampliar dicho plazo mediante Acuerdo debidamente motivado.

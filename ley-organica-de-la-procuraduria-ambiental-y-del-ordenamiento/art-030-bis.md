@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
+Artículo 30 Bis. Las pruebas que se presenten, tanto por los interesados, como por las autoridades o servidores públicos, o bien que la Procuraduría requiera y recabe de oficio, serán valoradas en su conjunto, de acuerdo con los principios de la lógica, la experiencia y la legalidad, a fin de que puedan producir convicción sobre los hechos materia de la denuncia.

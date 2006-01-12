@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
+Artículo 15 Bis 5. La Procuraduría, de acuerdo con el presupuesto que le corresponde, y de conformidad con las disposiciones jurídicas y administrativas aplicables, contará con las Coordinaciones, direcciones, subdirecciones, jefaturas de departamento, verificadores, inspectores, investigadores, peritos y demás servidores públicos que se requieran para el eficaz ejercicio de sus facultades, cuyas atribuciones se establecerán en el Reglamento de esta Ley.

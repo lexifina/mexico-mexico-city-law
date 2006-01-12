@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
+Artículo 34 Bis 1. La Procuraduría podrá elaborar y difundir públicamente informes especiales cuando persistan actitudes u omisiones que impliquen conductas evasivas o de entorpecimiento por parte de las autoridades y servidores públicos que deban intervenir o colaborar en sus investigaciones, no obstante los requerimientos que ésta les hubiere formulado. Asimismo, en el supuesto referido, la Procuraduría podrá solicitar amonestaciones por escrito, públicas o privadas, al superior jerárquico del servidor público de que se trate.
+Lo anterior sin perjuicio de la responsabilidad penal o administrativa que pudiera acreditarse en el caso específico por la conducta de los servidores públicos.
