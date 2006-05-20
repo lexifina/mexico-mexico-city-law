@@ -1,0 +1,6 @@
+G.O. 19 DE MAYO DE 2006.
+PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en la Gaceta Oficial del Distrito Federal.
+SEGUNDO.- Se deroga el último párrafo del artículo 1916 y el artículo 1916 bis del Código Civil para el Distrito Federal.
+TERCERO.- Se deroga el Título Décimo Tercero referente a "Delitos contra la intimidad personal y la inviolabilidad del secreto" Capítulo I "Violación de la Intimidad personal", Artículo 212 sin menoscabo de lo establecido en el 213 quedando el Título como "Inviolabilidad del secreto" y el Título Décimo Cuarto del Código Penal para el Distrito Federal nominado: "Delitos contra el honor" Artículos 214, 215, 216, 217, 218 y 219.
+CUARTO.- Los juicios en materia civil que se estén tramitando antes de la entrada en vigor de la presente ley se sujetarán en los sustantivo a la ley vigente al momento en que ocurrieron los hechos. Los de materia penal se sobreseerán al momento de la entrada en vigor de la presente ley. En cuanto al procedimiento las partes de común acuerdo podrán solicitar al Juez que tenga a su cargo el caso, la continuación del procedimiento en los términos de la presente ley.
+QUINTO.- Publíquese en la Gaceta Oficial del Distrito Federal y para su mayor difusión en el Diario Oficial de la Federación.
