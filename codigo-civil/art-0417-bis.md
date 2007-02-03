@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 2 DE FEBRERO DE 2007)
+ARTICULO 417 Bis.- Se entenderá por asistente de menores al profesional en psicología, trabajo social o pedagogía exclusivamente, adscrito al DIF-DF u otra institución avalada por éste, que asista al menor, sólo para efecto de facilitar su comunicación libre y espontánea y darle protección psicoemocional en las sesiones donde éste sea oído por el juez en privado, sin la presencia de los progenitores.
+Dicho asistente podrá solicitar hasta dos entrevistas previas a la escucha del menor, siendo obligatorio para el progenitor que tenga la guarda y custodia del menor dar cumplimiento a los requerimientos del asistente del menor.

@@ -1,5 +1,7 @@
-(ADICIONADO, G.O. 6 DE SEPTIEMBRE DE 2004)
-ARTICULO 941 TER.
-No será obstáculo para regular el derecho de convivencia de manera provisional, el hecho de que una de las partes manifieste unilateralmente y sin estar reconocido por resolución judicial firme, que ha habido violencia familiar en contra de los menores o algún otro de los miembros del núcleo familiar.
-Sin embargo, tales aseveraciones deberán ser tomadas en cuenta por el juez de lo familiar prudentemente. Por tanto, en caso de duda, y para salvaguarda de los menores, podrá ordenar que la convivencia, se realice en los centros e instituciones destinados para tal efecto, únicamente durante el procedimiento. Y no existiendo precedente de riesgo o peligro para el menor no será ordenado por el Juez de lo familiar las convivencias en las instituciones destinadas para tal efecto.
-Para el caso de incumplimiento de las resoluciones que ordenen la convivencia con los menores, deberán aplicarse las sanciones que correspondan según los ordenamientos legales aplicables.
+(REFORMADO, G.O. 2 DE FEBRERO DE 2007)
+ARTICULO 941 TER
+El ascendiente que no le sea otorgada la custodia podrá convivir tal y como lo fije el Juez, diversos días de la semana, fuera del horario escolar y sin desatender las labores escolares y debiendo auxiliarlo en dichas actividades.
+Asimismo, en forma equitativa, se podrá regular la convivencia en fines de semana alternados, periodos de vacaciones escolares y días festivos; cuando estos ya acudan a centros educativos.
+El Juez de lo Familiar, antes de regular el derecho de convivencia de manera provisional, deberá tomar en cuenta todos los elementos que estén a su alcance para decidir bajo el principio del interés superior del menor. En especial valorará el hecho de que una de las partes manifieste que ha habido violencia familiar, pudiendo solicitar valoración psicoemocional que determine si existen síntomas en el menor, de haber vivido cualquier tipo de violencia familiar, ya sea psicológica, física o sexual, independientemente de que exista o no indagatoria al respecto, a fin de proteger la integridad física y psicológica de los hijos.
+En caso de duda, y para salvaguarda de los hijos menores de edad o incapaces, deberá ordenar que las convivencias se realicen en los Centros e Instituciones destinados para tal efecto, únicamente durante el procedimiento.
+Las convivencias de manera provisional no se otorgarán por el Juez de lo Familiar cuando exista peligro para la integridad física, sexual y psicológica de los hijos menores de edad.
