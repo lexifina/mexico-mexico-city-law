@@ -1,0 +1,4 @@
+G.O. 16 DE FEBRERO DE 2007.
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
+SEGUNDO.- Publíquese en la Gaceta Oficial del Distrito Federal y para su mayor difusión en el Diario Oficial de la Federación.
+TERCERO.- El Gobierno del Distrito Federal tomará las medidas necesarias para la debida instrumentación y el uso de la tarjeta electrónica a que se refiere el artículo 4 de la ley que se reforma por el presente decreto. Para lo cual se considerarán los criterios de los representantes de los locatarios de los mercados públicos y una vez concluidos los trabajos relativos a la adecuación de los sistemas, procedimientos e instrumentos, el Gobierno del Distrito Federal publicará en la Gaceta Oficial del Distrito Federal, el Aviso que da inicio a la operación de la tarjeta electrónica en los mercados públicos del Distrito Federal.
