@@ -1,0 +1,5 @@
+G.O. 1 DE NOVIEMBRE DE 2007.
+PRIMERO.- La Asamblea Legislativa del Distrito Federal en un plazo no mayor a 60 días naturales, deberá realizar las adecuaciones legales correspondientes a la Ley para el Funcionamiento de Establecimientos Mercantiles del Distrito Federal, a fin de armonizar su contenido con las reformas de este decreto.
+SEGUNDO.- Las presentes reformas a la Ley de Protección a la Salud de los no Fumadores en el Distrito Federal, entrarán en vigor al día siguiente de la entrada en vigor de las adecuaciones legales a que se refiere el artículo Primero Transitorio del presente decreto.
+TERCERO.- El Gobierno del Distrito Federal deberá expedir el Reglamento correspondiente a la presente Ley en un plazo no mayor a 60 días naturales de la entrada en vigor de las presentes reformas.
+CUARTO.- La Asamblea Legislativa del Distrito Federal considerará en el Presupuesto de Egresos 2008, una partida presupuestal para promover la creación de los centros delegacionales contra el tabaquismo y para las clínicas y servicios para la atención de fumador, previstos en el artículo 7 fracciones VIII y IX de esta Ley.
