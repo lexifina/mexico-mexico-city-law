@@ -1,2 +1,2 @@
 (ADICIONADO, G.O. 9 DE JUNIO DE 2006)
-ARTÍCULO 71 Bis (De la disminución de la pena en delitos no graves). Cuando el sujeto activo confiese su participación en la comisión de delito no grave ante el Ministerio Público y la ratifique ante el Juez en la declaración preparatoria, se disminuirá la pena en una mitad, según el delito que se trate.
+ARTÍCULO 71 BIS. (De la disminución de la pena en delitos no graves). Cuando el sujeto activo confiese su participación en la comisión de delito no grave ante el Ministerio Público y la ratifique ante el Juez en la declaración preparatoria, se disminuirá la pena en una mitad, según el delito que se trate.

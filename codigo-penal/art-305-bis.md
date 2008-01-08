@@ -1,2 +1,2 @@
 (ADICIONADO, G.O. 9 DE JUNIO DE 2006)
-ARTÍCULO 305 Bis. Se equipara al delito de evasión de presos y se le impondrán de dos a siete años de prisión y de cien a trescientos días multa, al que encontrándose sujeto al beneficio de Reclusión Domiciliaria mediante el Programa de Monitoreo Electrónico a Distancia, evada por cualquier medio la vigilancia de la autoridad ejecutora.
+ARTÍCULO 305 BIS. Se equipara al delito de evasión de presos y se le impondrán de dos a siete años de prisión y de cien a trescientos días multa, al que encontrándose sujeto al beneficio de Reclusión Domiciliaria mediante el Programa de Monitoreo Electrónico a Distancia, evada por cualquier medio la vigilancia de la autoridad ejecutora.
