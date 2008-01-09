@@ -1,6 +1,6 @@
 G.O. 7 DE ENERO DE 2008.
 PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial del Distrito Federal.
-SEGUNDO.- A partir de la entrada en vigor de la (sic) presente Decreto, se derogan las demás disposiciones que contravengan al mismo.
+SEGUNDO.- A partir de la entrada en vigor de la presente Decreto, se derogan las demás disposiciones que contravengan al mismo.
 TERCERO.- El Jefe de Gobierno del Distrito Federal tendrá 90 días naturales para emitir el Reglamento y los Lineamientos conducentes para la aplicación de la presente ley.
 CUARTO.- El Jefe de Gobierno del Distrito Federal, deberá realizar a más tardar en 90 días naturales las adecuaciones correspondientes al Reglamento Interior de la Secretaría de Salud del Distrito Federal, para proveer en la esfera administrativa lo relativo a la creación de la Coordinación Especializada en materia de Voluntad Anticipada.
 QUINTO.- El Jefe de Gobierno del Distrito Federal deberá suscribir el convenio de colaboración correspondiente con el Colegio de Notarios a efecto de garantizar el cumplimiento de las disposiciones de la Ley de Voluntad Anticipada para el Distrito Federal y asegurar el menor costo posible de los honorarios correspondientes al Documento contenido en ella, así como la inclusión de la suscripción del mismo en las Jornadas Notariales.
