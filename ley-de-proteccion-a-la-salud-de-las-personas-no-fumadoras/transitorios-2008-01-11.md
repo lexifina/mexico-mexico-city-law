@@ -1,0 +1,7 @@
+G.O. 11 DE ENERO DE 2008.
+PRIMERO. Publíquese en la Gaceta Oficial del Distrito Federal.
+SEGUNDO. El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial del Distrito Federal.
+TERCERO. Publíquese para su mayor difusión en el Diario Oficial de la Federación.
+CUARTO. Los Titulares de los Establecimientos Mercantiles de coexistencia con fumadores, contarán con un plazo de seis meses a partir de que entre en vigor el presente decreto para hacer las modificaciones correspondientes. Una vez recibida la solicitud de acondicionamiento para llevar a cabo la separación física entre fumadores y no fumadores por parte del Titular del Establecimiento, las autoridades delegacionales deberán responder a la misma en un plazo máximo que no exceda de 48 horas. En caso de que el Titular del Establecimiento no sea notificado de la respuesta a su solicitud, se entenderá que la misma es procedente, sin mayor trámite.
+QUINTO. La Asamblea Legislativa del Distrito Federal deberá implementar una campaña permanente para dar a conocer a los Titulares de los Establecimientos Mercantiles y a la ciudadanía en general, los derechos y obligaciones que se derivan por la entrada en vigor del presente decreto. Para tal fin, se deberá prever en el Presupuesto de Egresos una partida suficiente para poder llevar a cabo acciones de promoción y publicidad en medios electrónicos e impresos.
+SEXTO.- El Gobierno del Distrito Federal y los Órganos Político-Administrativos efectuarán una campaña de difusión del presente decreto.
