@@ -1,0 +1,7 @@
+G.O. 8 DE ENERO DE 2008.
+PRIMERO. El presente Decreto entrará en vigor a los sesenta días naturales posteriores a su publicación en la Gaceta Oficial del Distrito Federal.
+SEGUNDO. Publíquese para su mayor difusión en el Diario Oficial de la Federación.
+TERCERO. Para su mayor difusión, ordénese su publicación en el Boletín Judicial del Tribunal Superior de Justicia del Distrito Federal.
+CUARTO. El Tribunal Superior de Justicia del Distrito Federal deberá realizar las previsiones presupuestales necesarias para dotar del personal y de la infraestructura necesaria al Centro para su adecuado funcionamiento en los términos que señala el presente Decreto.
+QUINTO. El Tribunal Superior de Justicia del Distrito Federal contará con sesenta días naturales posteriores a la publicación del presente Decreto para emitir el reglamento interno correspondiente.
+SEXTO. La Comisión de Administración y Procuración de Justicia conformará una comisión multidisciplinaria donde participe, cuando menos, la Consejería Jurídica del Gobierno del Distrito Federal, el Centro de Justicia Alternativa del Tribunal Superior de Justicia del Distrito Federal, académicos e investigadores con experiencia en la materia; con la finalidad de elaborar, en el plazo de un año, contado a partir del día siguiente de la fecha de entrada en vigor de la presente ley, de la iniciativa de ley que para la solución de controversias en todos los ámbitos de interacción social, requiere el Distrito Federal.
