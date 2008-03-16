@@ -1,0 +1,10 @@
+G.O. 13 DE MARZO DE 2008.
+SE TRANSCRIBEN UNICAMENTE LOS TRANSITORIOS DEL DECRETO DE REFORMAS QUE SE RELACIONAN CON EL CODIGO.
+PRIMERO.- El presente Decreto entrará en vigor el día primero de julio del año dos mil ocho.
+SEGUNDO.- La Asamblea Legislativa del Distrito Federal, autorizará a la Administración Pública del Distrito Federal, los recursos materiales y financieros necesarios para que la Consejería Jurídica y de Servicios Legales, dé cumplimiento al contenido de este Decreto.
+TERCERO.- Las personas que hayan sufrido únicamente daños causados culposamente con motivo del tránsito de vehículos antes de la entrada en vigor de este Decreto y de los que no se haya presentado querella ante la autoridad ministerial, podrán, en caso que así lo deseen, demandar su pago ante del Juez de Paz Civil competente, de acuerdo al nuevo procedimiento previsto en el presente Decreto y dentro del plazo de un año contado a partir que ocurrieron los hechos.
+...
+QUINTO.- Los procesos penales, donde el auto de sujeción a proceso se haya emitido únicamente por el delito de daño a la propiedad culposo con motivo del tránsito de vehículos, deberán ser enviados al Juez de Paz Civil competente por territorio.
+El Juez de Paz Civil notificará personalmente a la parte agraviada para que dentro del término de cinco días formule la demanda de pago de daños culposos causados con motivo del tránsito de vehículos y una vez que la reciba, dictará el acuerdo y continuará el proceso como lo señala el presente Decreto. La Defensoría de Oficio brindará la asistencia legal para todos los agraviados que así se lo soliciten.
+SEXTO.- El Jefe de Gobierno del Distrito Federal deberá emitir los ordenamientos administrativos necesarios para instrumentar el presente Decreto, para que entren en vigor el mismo día que este instrumento.
+SÉPTIMO.- El Tribunal Superior de Justicia del Distrito Federal deberá realizar las adecuaciones administrativas y laborales para que se cumpla el procedimiento seguido ante los Jueces de Paz Civil que señala este Decreto en los términos y plazos allí señalados y entren en vigor el mismo día que este instrumento.
