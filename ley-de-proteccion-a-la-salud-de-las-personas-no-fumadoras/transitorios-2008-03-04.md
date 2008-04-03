@@ -1,0 +1,5 @@
+G.O. 4 DE MARZO DE 2008.
+PRIMERO.- Publíquese en el Gaceta Oficial del Distrito Federal y para su mayor difusión en el Diario Oficial de la Federación.
+SEGUNDO.- El presente Decreto entrará en vigor a los treinta días siguientes a los de su publicación en la Gaceta Oficial del Distrito Federal.
+TERCERO.- Se deroga el Artículo Cuarto Transitorio del Decreto por el que se reforma y adiciona la Ley para el Funcionamiento de Establecimientos Mercantiles del Distrito Federal y se reforma la Ley de Protección a la Salud de los No Fumadores del Distrito Federal, publicado en la Gaceta Oficial del Distrito Federal el 11 de enero del 2008.
+CUARTO.- La Asamblea Legislativa del Distrito Federal y el Gobierno del Distrito Federal implementarán una campaña permanente para dar a conocer los derechos y obligaciones que se derivan por la entrada en vigor del presente Decreto. En dicha campaña no podrán emplearse colores partidistas y se pondrá énfasis para que los adultos no fumen dentro de un vehículo cuando vaya un menor adentro.
