@@ -1,0 +1,6 @@
+(ADICIONADO, G.O. 15 DE SEPTIEMBRE DE 2008)
+Artículo 101 Bis. La Administración, a través de la Dependencia Auxiliar, podrá recuperar administrativamente la concesión, con carácter temporal, cuando el concesionario incurra en incumplimientos graves a los términos del Título de concesión y con ello se afecte la ejecución de las obras, los actos vinculados con el bien o la prestación del servicio público, que sean objeto del mismo.
+El efecto de la recuperación será el de que la Administración asuma la ejecución del objeto de la concesión, mientras dure la misma, obteniendo para sí la contraprestación que en su caso se hubiera pactado para el concesionario.
+Los efectos de la recuperación concluirán cuando sean corregidas por el concesionario las causas que hubieran dado origen a la misma, cuyo plazo no podrá exceder de doce meses.
+En caso de verificarse lo anterior, la Administración conjuntamente con el concesionario, formularán la liquidación correspondiente, en la que deberán deducirse los gastos realizados por aquella en la ejecución del contrato, los perjuicios generados por los incumplimientos y la aplicación de las sanciones económicas previstas en la ley y en el Título respectivo.
+Las controversias que se generen por la liquidación serán resueltas por los tribunales jurisdiccionales del Distrito Federal.
