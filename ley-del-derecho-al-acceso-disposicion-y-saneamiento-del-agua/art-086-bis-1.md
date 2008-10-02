@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 1 DE OCTUBRE DE 2008)
+Artículo 86 BIS 1.- Las nuevas construcciones o edificaciones deberán contar con redes separadas de agua potable, de agua residual tratada y cosecha de agua de lluvia, debiéndose utilizar esta última en todos aquellos usos que no requieran agua potable; así mismo, deberán contar con la instalación de sistemas alternativos de uso de agua pluvial.
+Las edificaciones existentes que modifiquen sus instalaciones hidráulicas para la reducción en el consumo de agua potable e incrementen la reutilización y tratamiento de la misma obtendrán la certificación de edificación sustentable y tendrán derecho a reducciones fiscales que establezca el Código Financiero del Distrito Federal.
