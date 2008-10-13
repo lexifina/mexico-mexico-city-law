@@ -1,0 +1,7 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS AL CODIGO.
+(ADICIONADO, G.O. 10 DE OCTUBRE DE 2008)
+ARTICULO 135 Bis.- Pueden pedir el levantamiento de una nueva acta de nacimiento por reasignación de concordancia sexo-genérica, previa la anotación correspondiente en su acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género.
+Se entenderá por identidad de género la convicción personal de pertenecer al género masculino o femenino, es inmodificable, involuntaria y puede ser distinta al sexo original.
+La reasignación para la concordancia sexo-genérica es el proceso de intervención profesional mediante el cual la persona obtiene concordancia entre los aspectos corporales y su identidad de género, que puede incluir, parcial o totalmente: entrenamiento de expresión de rol de género, administración de hormonas, psicoterapia de apoyo o las intervenciones quirúrgicas que haya requerido en su proceso; y que tendrá como consecuencia, mediante resolución judicial, una identidad jurídica de hombre o mujer, según corresponda.
+Se entenderá por expresión de rol de género, el conjunto de manifestaciones relacionadas con la vestimenta, la expresión corporal o verbal y el comportamiento.
+Los derechos y obligaciones contraídas con anterioridad a la reasignación para la concordancia sexo-genérica no se modifican ni extinguen con la nueva identidad jurídica de la persona.

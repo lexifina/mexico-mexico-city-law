@@ -1,0 +1,6 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.O. 10 DE OCTUBRE DE 2008)
+ARTICULO 498 BIS 3
+Además de los otros medios de prueba, el promovente deberá comparecer a la audiencia con los peritos que hayan emitido los dictámenes en que se funde la demanda. En caso de ausencia de los peritos, se tendrá por desierta la probanza.
+En dicha audiencia, el Juez podrá cuestionar a los peritos sobre el contenido de los dictámenes emitidos y podrá ordenar la práctica y el desahogo de los dictámenes periciales que considere necesarios, únicamente y exclusivamente para determinar la procedencia de la acción; en cuyo caso se podrá suspender la audiencia hasta por diez días hábiles. También podrá interrogar a los testigos, si se hubieren ofrecido y presentado, para los mismos efectos que los peritos.
+Cuando el Registro Civil haya manifestado oposición a la solicitud del promovente, deberá ofrecer las pruebas que considere necesarias para acreditar su dicho cuando se le dé vista con la demanda y comparecerá a la audiencia para su desahogo.

@@ -1,0 +1,10 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.O. 10 DE OCTUBRE DE 2008)
+ARTICULO 498 BIS
+Además de lo señalado en el artículo anterior, se deberá cumplir con los siguientes requisitos:
+I. Ser de nacionalidad mexicana;
+II. Mayor de edad o actuar a través de quien ejerza sobre la persona la patria potestad o tutela;
+III. Anexar a la demanda el dictamen que determine que es una persona que se encuentra sujeta al proceso de reasignación para la concordancia sexo-genérica con un mínimo de cinco meses, expedido por dos profesionistas o peritos que cuenten con experiencia clínica en materia de procesos de reasignación para la concordancia sexo-genérica, uno de ellos deberá ser el profesionista a cargo del tratamiento del solicitante.
+Así como manifestar lo siguiente:
+I. El nombre completo y sexo original de la persona promovente, con los datos registrales correspondientes;
+II. El nombre sin apellidos y, en su caso, el sexo solicitado.
