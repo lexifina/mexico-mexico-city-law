@@ -1,3 +1,2 @@
-(ADICIONADO, G.O. 9 DE ENERO DE 2006)
-Artículo 15 Bis 6. La Procuraduría deberá contar con un servicio público de carrera, que garantice la profesionalización de la totalidad de sus servidores públicos y el ejercicio adecuado y eficiente de sus funciones.
-El Reglamento de esta Ley contendrá las disposiciones a que se sujetará el establecimiento, instrumentación y evaluación del servicio público de carrera de la Procuraduría.
+(REFORMADO, G.O. 31 DE OCTUBRE DE 2008)
+Artículo 15 Bis 6. La Procuraduría, de acuerdo con el presupuesto que le corresponde, y de conformidad con las disposiciones jurídicas y administrativas aplicables, contará con las Coordinaciones, Direcciones, Subdirecciones, Jefaturas de Unidad Departamental, Verificadores, Inspectores, Investigadores, Peritos y demás servidores públicos que se requieren para el ejercicio de sus atribuciones.
