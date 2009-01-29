@@ -1,0 +1,3 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+(ADICIONADO, G.O. 31 DE OCTUBRE DE 2008)
+ARTICULO 39 Bis.- Bombero Forestal, es el servidor público, miembro de un Organismo de apoyo para la salvaguarda del suelo de conservación, áreas naturales protegidas y áreas de valor ambiental, encargado de la prevención, control, mitigación y extinción de incendios, emergencias y siniestros ocurridos en estas superficies previstos por esta ley, quien bajo ninguna circunstancia podrá ser utilizado como elemento con funciones de disuasión o de coerción contra la ciudadanía.
