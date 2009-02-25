@@ -1,4 +1,3 @@
-(DEROGADO ULTIMO PARRAFO, G.O. 29 DE ENERO DE 2004)
 (ADICIONADO, G.O. 29 DE ENERO DE 2004)
 Artículo 35 Bis.- Los interesados tienen en todo momento el derecho de obtener información sobre los procedimientos y el estado en que se encuentran, así como el acceso a los expedientes que con motivo de sus solicitudes o por mandato legal, formen las autoridades. Así mismo, se les podrán expedir a su costa; y siempre que así lo soliciten, copias y certificaciones de los documentos que obren en los expedientes previo pago de los derechos que correspondan.
 Sólo podrá negarse la información o el acceso a los expedientes, cuando se involucren cuestiones relativas a la defensa y seguridad nacional, esté protegida dicha información por el secreto industrial, comercial o por disposición legal; o porque el solicitante no sea el titular o causahabiente, o no acredite su interés legítimo en el procedimiento administrativo.
