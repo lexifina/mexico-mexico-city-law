@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 18 DE AGOSTO DE 2009)
+Artículo 11 Bis. Además de las facultades establecidas en el artículo 6°, la Secretaría tendrá la facultad de elaborar, difundir y aplicar un programa de sustitución de plásticos, con el fin de reducir el consumo de bolsas, envases, embalajes o empaques de plástico no biodegradable que se utilicen en establecimientos mercantiles y que se entregan para contención, transporte y envase de mercancías.
+De la misma manera deberá informar y fomentar la educación de los habitantes del Distrito Federal sobre el impacto negativo que producen los plásticos no biodegradables en el ambiente.
