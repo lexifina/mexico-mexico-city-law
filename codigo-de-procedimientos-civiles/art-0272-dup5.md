@@ -1,3 +1,2 @@
-(ADICIONADO, D.O.F. 10 DE ENERO DE 1986)
-ARTICULO 272-D
-Si se alegaren defectos en la demanda o en la contestación, el juez dictará las medidas conducentes para subsanarlos en los términos del artículo 257 de este Ordenamiento.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 272-D (DEROGADO, G.O. 10 DE SEPTIEMBRE DE 2009)
