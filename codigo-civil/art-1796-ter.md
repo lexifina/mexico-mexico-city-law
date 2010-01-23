@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 22 DE ENERO DE 2010)
+ARTICULO 1,796 Ter.- Los efectos de la modificación equitativa o la rescisión del contrato no aplicarán a las prestaciones realizadas antes de que surgiera el acontecimiento extraordinario e imprevisible sino que estas modificaciones aplicarán a las prestaciones por cubrir con posterioridad a éste. Por ello tampoco procederá la rescisión si el perjudicado estuviese en mora o hubiere obrado dolosamente.
