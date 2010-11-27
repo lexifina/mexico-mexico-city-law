@@ -1,2 +1,3 @@
-(ADICIONADO, G.O. 18 DE AGOSTO DE 2009)
-Artículo 26 Bis. Los establecimientos mercantiles no podrán otorgar a título gratuito para la transportación, contención y envase de los productos y/o servicios que presten ó comercialicen bolsas de plástico.
+((REFORMADO, G.O. 26 DE NOVIEMBRE DE 2010)
+Artículo 26 Bis.- Las bolsas de plástico que se entreguen a título gratuito, de manera onerosa o con motivo de cualquier acto comercial, para transportación, carga o traslado del consumidor final, deberán cumplir con los criterios y normas de producción y consumo sustentable señalados en la fracción XI del artículo 6º de la presente ley.
+Productores, distribuidores, y usuarios de las bolsas a las que se refiere este artículo, deberán propiciar las acciones relativas a la maximización en la valorización o reciclaje mediante la participación en los programas que para tal efecto establezca la Secretaría.

@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], G.O. 26 DE NOVIEMBRE DE 2010)
+Artículo 33 Bis 1.- La Secretaría y la Secretaría de Obras, en conjunto con las delegaciones, fomentaran que las instituciones educativas, empresas, establecimientos mercantiles, industriales y de servicios, instituciones públicas y privadas, centros educativos y dependencias gubernamentales y similares, lleven a cabo la separación de residuos, mediante el sistema de recolección diferenciada.
