@@ -1,2 +1,0 @@
-(ADICIONADO, G.O. 23 DE OCTUBRE DE 2006)
-ARTÍCULO 87 BIS.- Los Grupos Parlamentarios y Coaliciones Parlamentarias podrán realizar entre ellos alianzas parlamentarias de carácter transitorio o permanente con la finalidad de establecer e impulsar agendas legislativas generales o específicas en común. Las alianzas parlamentarias transitorias serán las que se realicen para periodos ordinarios o extraordinarios específicos, mientras que las permanentes serán las que se constituyan para toda la Legislatura.

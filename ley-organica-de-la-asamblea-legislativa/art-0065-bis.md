@@ -1,2 +1,0 @@
-(ADICIONADO, G.O. 12 DE SEPTIEMBRE DE 2008)
-ARTÍCULO 65 BIS.- La Comisión de Vigilancia y Evaluación de Políticas y Programas Sociales, es un órgano interno de la Asamblea Legislativa encargado de la evaluación de los planes, programas, metas y acciones en materia de política social de aplicación en el Distrito Federal, conforme a la normatividad aplicable. La Comisión se regirá de conformidad con los lineamientos que al efecto expidan sus integrantes.

@@ -1,4 +1,9 @@
-LEY ORGANICA DE LA ASAMBLEA LEGISLATIVA DEL DISTRITO FEDERAL
-Ley publicada en la Gaceta Oficial del Distrito Federal, el jueves 19 de diciembre de 2002.
-DECRETO POR EL QUE SE EXPIDE LA LEY ORGÁNICA DE LA ASAMBLEA LEGISLATIVA DEL DISTRITO FEDERAL
-DECRETO
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
+CÓDIGO CIVIL PARA EL ESTADO DE OAXACA
+Código publicado en el Suplemento del Periódico Oficial del Estado de Oaxaca, el jueves 30 de noviembre de 1944.
+VICENTE GONZALEZ FERNANDEZ, Gobernador Constitucional del Estado Libre y Soberano de Oaxaca, a sus habitantes hace saber:
+Que la H. Legislatura del Estado ha tenido a bien aprobar lo siguiente:
+La XXXVIII Legislatura Constitucional del Estado Libre y Soberano de Oaxaca,
+DECRETA:
+CODIGO CIVIL PARA EL ESTADO DE OAXACA
+Disposiciones preliminares
