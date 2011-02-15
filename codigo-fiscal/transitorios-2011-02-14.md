@@ -1,0 +1,4 @@
+G.O. 14 DE FEBRERO DE 2011.
+PRIMERO.- Publíquese en la Gaceta Oficial del Distrito Federal para su debida observancia y aplicación.
+SEGUNDO.- Con el objeto de brindar certeza jurídica respecto de la vigencia de las fracciones IV y VI del artículo 58 del Código Fiscal, con la publicación del presente Decreto se confirma que es correcto el texto de la reforma al artículo 58 en lo que se refiere a sus cuotas, como aparece publicado en el Decreto por el que se reforman, adicionan y derogan diversas disposiciones del Código Fiscal del Distrito Federal, no así el intríngulis de dicho Decreto, que erróneamente señala que se derogan las fracciones IV y VI; por lo que se aclara que el texto de dichas fracciones sigue vigente.
+TERCERO.- El presente decreto entrará en vigor al día siguiente de su publicación.
