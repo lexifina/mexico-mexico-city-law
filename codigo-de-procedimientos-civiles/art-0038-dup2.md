@@ -1,3 +1,3 @@
-ARTICULO 38
-Las promociones de nulidad de actuaciones por falta o defecto de citación o notificación, deben de ser desechadas de plano.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 38 (DEROGADO, G.O. 18 DE MARZO DE 2011)
 Reglas generales

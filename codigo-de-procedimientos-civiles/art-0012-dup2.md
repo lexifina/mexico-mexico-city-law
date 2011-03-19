@@ -1,2 +1,2 @@
-ARTICULO 12
-Las citas se extenderán en esqueletos impresos tomados de libros talonarios. Un duplicado se agregará al expediente respectivo.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 12 (DEROGADO, G.O. 18 DE MARZO DE 2011)

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 18 DE MARZO DE 2011)
+ARTÍCULO 157 BIS. En el caso de que el sujeto activo de los delitos de Abandono de Persona y Omisión de Auxilio fuese respecto a la víctima pariente consanguíneo en línea recta, o colateral hasta el cuarto grado, cónyuge, concubina o concubinario, persona con la que mantenga una relación de hecho, adoptante o adoptada o integrante de una sociedad de convivencia perderá los derechos como acreedor alimentario.

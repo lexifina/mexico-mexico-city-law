@@ -1,4 +1,2 @@
-ARTICULO 7
-A petición del actor se citará al demandado para que comparezca dentro del tercero día. En la cita que en presencia del actor será expedida y entregada a la persona que deba de llevarla se expresará por lo menos el nombre del actor, lo que demande, la causa de la demanda, la hora que se señale para el juicio y la advertencia de que las pruebas se presentarán en la misma audiencia.
-Debe llevarse en los juzgados de paz un libro de registro en que se asentarán por días y meses los nombres de actores y demandados y el objeto de las demandas.
-Puede el actor presentar su demanda por escrito.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 7 (DEROGADO, G.O. 18 DE MARZO DE 2011)

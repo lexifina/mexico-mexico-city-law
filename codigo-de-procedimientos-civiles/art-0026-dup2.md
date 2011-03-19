@@ -1,2 +1,2 @@
-ARTICULO 26
-La elección de los bienes en que hubiere de recaer el secuestro será hecha por el ejecutor, prefiriendo los más realizables y teniendo en cuenta lo que expongan las partes.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 26 (DEROGADO, G.O. 18 DE MARZO DE 2011)

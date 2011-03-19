@@ -1,2 +1,2 @@
-ARTICULO 41
-Ante los jueces de paz no será necesario la intervención de abogados ni se exigirá ritualidad alguna ni forma determinada en las promociones o alegaciones que se hagan.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 41 (DEROGADO, G.O. 18 DE MARZO DE 2011)

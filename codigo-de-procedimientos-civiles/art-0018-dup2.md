@@ -1,2 +1,2 @@
-ARTICULO 18
-Si al ser llamado a contestar la demanda no estuviere presente el demandado y constare que fue debidamente citado, lo cual comprobará el juez con especial cuidado, se dará por contestada la demanda en sentido afirmativo y se continuará la audiencia. Cuando se presente durante ella el demandado, continuará ésta con su intervención según el estado en que se halle y no se le admitirá prueba sobre ninguna excepción si no demostrare el impedimento de caso fortuito o fuerza mayor que le impidiera presentarse a contestar la demanda.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 18 (DEROGADO, G.O. 18 DE MARZO DE 2011)

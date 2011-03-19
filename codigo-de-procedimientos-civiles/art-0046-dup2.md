@@ -1,3 +1,2 @@
-ARTICULO 46
-(F. DE E., D.O.F. 27 DE SEPTIEMBRE DE 1932)
-Para la facilidad y rapidez en el despacho, las citas, órdenes, actas y demás documentos necesarios se extenderán en esqueletos impresos que tendrán los huecos que su objeto requiera y los cuales se llenarán haciendo constar en breve extracto lo indispensable para la exactitud y precisión del documento. Cuando por motivos especiales fuere necesario hacer constar más de lo que cupiere en el hueco correspondiente, se escribirá al reverso del documento o en hojas que se agregarán a él. El Presidente del Tribunal Superior y el Jefe del Departamento Central fijarán cada año, en el mes de diciembre, los modelos de los esqueletos que se hayan de emplear en el año siguiente, oyendo en efecto a los jueces de paz, a los que convocarán a las juntas que estime necesarias y cuidará de la impresión y distribución de los esqueletos en cantidad necesaria.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 46 (DEROGADO, G.O. 18 DE MARZO DE 2011)

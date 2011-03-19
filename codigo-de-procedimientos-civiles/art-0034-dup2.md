@@ -1,3 +1,2 @@
-ARTICULO 34
-Si la sentencia condena a hacer, el juez señalará al que fue condenado, un plazo prudente para el cumplimiento y se estará en todo a lo dispuesto en el artículo 517 de este Código (de Procedimientos Civiles).
-Si el hecho consistiere en el otorgamiento de un contrato o la celebración de un acto jurídico, el juez lo ejecutará en rebeldía del condenado.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 34 (DEROGADO, G.O. 18 DE MARZO DE 2011)

@@ -1,2 +1,2 @@
-ARTICULO 40
-En los negocios de la competencia de los juzgados de paz, únicamente se aplicarán las disposiciones de este Código (de Procedimientos Civiles), y de la Ley de Organización de Tribunales, en lo que fuere indispensable, para complementar las disposiciones de este título y que no se opongan directa ni indirectamente a éstas.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 40 (DEROGADO, G.O. 18 DE MARZO DE 2011)

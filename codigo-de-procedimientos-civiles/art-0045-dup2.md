@@ -1,2 +1,2 @@
-ARTICULO 45
-Los documentos y objetos presentados por las partes, les serán devueltos al terminar la audiencia, tomándose razón.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 45 (DEROGADO, G.O. 18 DE MARZO DE 2011)

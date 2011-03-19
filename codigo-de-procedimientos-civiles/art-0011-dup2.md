@@ -1,3 +1,2 @@
-(REFORMADO, D.O.F. 30 DE DICIEMBRE DE 1975)
-ARTICULO 11
-El actor tiene derecho de acompañar al secretario actuario que lleve la cita para hacer las indicaciones que faciliten la entrega.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 11 (DEROGADO, G.O. 18 DE MARZO DE 2011)

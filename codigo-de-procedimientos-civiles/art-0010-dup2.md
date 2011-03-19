@@ -1,2 +1,2 @@
-ARTICULO 10
-Cuando no se conociere el lugar en que el demandado viva o tenga el principal asiento de sus negocios o cuando viviendo o trabajando en un lugar se negaren él o las personas requeridas a recibir el emplazamiento, se podrá hacer la notificación en el lugar donde se encuentre.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 10 (DEROGADO, G.O. 18 DE MARZO DE 2011)

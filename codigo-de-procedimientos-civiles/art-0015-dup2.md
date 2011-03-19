@@ -1,3 +1,3 @@
-ARTICULO 15
-Los peritos, testigos y, en general, terceros que no constituyan parte pueden ser citados por correo, telégrafo y aun teléfono, cerciorándose el secretario previamente de la exactitud de la dirección de la persona citada.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA EL CODIGO.
+ARTICULO 15 (DEROGADO, G.O. 18 DE MARZO DE 2011)
 Identidad de las partes
