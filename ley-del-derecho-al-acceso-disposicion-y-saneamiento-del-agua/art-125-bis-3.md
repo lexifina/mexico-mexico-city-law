@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE MARZO DE 2011)
+Artículo 125 BIS 3.- El sistema de captación y recarga de agua pluvial al subsuelo deberá estar indicado en los planos de instalaciones y formará parte del proyecto arquitectónico, que debe ser presentado para el trámite del registro de Manifestación de Construcción o Licencia de Construcción Especial. Dicho mecanismo deberá ser evaluado y aprobado por el Sistema de Aguas de la Ciudad de México, así como contar con la aprobación de la Secretaría de Desarrollo Urbano y Vivienda y de las Delegaciones Políticas.

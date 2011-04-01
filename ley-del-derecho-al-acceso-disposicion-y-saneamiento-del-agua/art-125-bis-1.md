@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE MARZO DE 2011)
+Artículo 125 BIS 1.- Para el caso de las nuevas construcciones que se encuentren cercanas a áreas verdes, barrancas, zonas boscosas o cualquier otra cubierta vegetal o área natural, se deberá establecer el sistema de cosecha y de recarga de aguas pluviales al subsuelo señalado en el artículo anterior ó un sistema en el cual se encause el agua de lluvia a estos lugares permitiendo su infiltración.

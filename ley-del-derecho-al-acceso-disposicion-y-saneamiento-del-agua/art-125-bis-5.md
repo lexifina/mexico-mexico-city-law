@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE MARZO DE 2011)
+Artículo 125 BIS 5.- La autoridad correspondiente revisará que el sistema establecido en el Capítulo anterior, este integrado a la obra en su terminación, siempre y cuando se encuentre en los suelos de transición o de lomas Zona I y II del Reglamento de Construcciones para el Distrito Federal. En caso de no acreditarlo al momento del aviso de terminación de obra correspondiente, la autoridad competente no otorgará la autorización de uso y ocupación.

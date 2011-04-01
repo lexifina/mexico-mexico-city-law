@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE MARZO DE 2011)
+Artículo 125 BIS 2.- El porcentaje total de área libre de construcción de las nuevas edificaciones del Distrito Federal, serán áreas verdes y las zonas que se destinen a estacionamiento de vehículos se deberá cubrir con pasto o con material permeable que permita la infiltración del agua de lluvia, siempre y cuando los predios se encuentren en los suelos de lomas o de transición, Zona I y II del Reglamento de Construcciones para el Distrito Federal.

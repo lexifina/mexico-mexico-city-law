@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 31 DE MARZO DE 2011)
+Artículo 125 BIS.- En las edificaciones nuevas que se construyan en los predios localizados en las Zonas I y II de lomas o de transición en el Distrito Federal, conforme a la zonificación indicada en el Capítulo VIII del Reglamento de Construcciones para el Distrito Federal, será obligatorio contar con sistemas de cosecha y recarga de aguas pluviales al subsuelo que permitan su infiltración.
+Dicha infiltración deberá encausarse a través de diferentes sistemas, como zanjas y pozos de absorción, pisos filtrantes, estacionamientos con pasto o de cualquier material que permita la infiltración del agua de lluvia y la recarga al subsuelo.
+Las medidas y demás especificaciones de las zanjas de absorción, serán determinadas en el Reglamento de la Ley de Aguas del Distrito Federal.
