@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 7 DE ABRIL DE 2011)
+ARTICULO 14 Quater.- Llevado a cabo el trámite, y de haberse cumplido con los requisitos anteriores, el interesado recibirá dentro de los quince días hábiles siguientes a la fecha de recepción de la solicitud, una constancia de registro de proveedor, con la que podrá participar en licitaciones públicas, concursos por invitación restringida y adjudicación directa.
