@@ -1,0 +1,7 @@
+G.O. 11 DE NOVIEMBRE DE 2011.
+PRIMERO.- Para el ejercicio fiscal 2011, el porcentaje de reducción previsto en el artículo 294 de este Código, será del 25% en el pago de los derechos por la revista reglamentaria anual establecido en el artículo 222, fracción X del citado Código.
+SEGUNDO.- Aquellos contribuyentes o usuarios que por determinación de la Tesorería les haya sido reclasificada su toma, respecto de los derechos correspondientes a los ejercicios fiscales de 2010 y 2011; en términos de la fracción V del artículo 172, el Sistema de Aguas les realizará el ajuste correspondiente, el cual tendrá efectos retroactivos desde el primer bimestre de dos mil diez con relación a los adeudos y sus accesorios que se hayan generado por la errónea clasificación.
+TERCERO.- A fin de regularizar la situación fiscal de las Asociaciones Civiles, éstas podrán aplicar en el presente ejercicio fiscal las reducciones previstas en el artículo 283 de este Código, aún para el pago de créditos fiscales generados durante los ejercicios 2009 y 2010.
+Para efectos de lo anterior, la Tesorería y el Sistema de Aguas, implementarán las acciones necesarias para que las Administraciones Tributarias y el propio Sistema de Aguas, apliquen dichas reducciones, considerando la constancia expedida por la autoridad competente.
+CUARTO.- Publíquese en la Gaceta Oficial del Distrito Federal para su debida observancia y aplicación.
+QUINTO.- El presente Decreto entrará en vigor a partir del día siguiente al de su publicación.
