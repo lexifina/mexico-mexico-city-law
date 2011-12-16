@@ -1,4 +1,4 @@
-LEY ORGANICA DE LA PROCURADURIA AMBIENTAL Y DEL ORDENAMIENTO TERRITORIAL DEL DISTRITO FEDERAL
+LEY ORGÁNICA DE LA PROCURADURÍA AMBIENTAL Y DEL ORDENAMIENTO TERRITORIAL DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el martes 24 de abril de 2001.
 (Al margen superior izquierdo un escudo que dice.- Ciudad de México.- JEFE DE GOBIERNO DEL DISTRITO FEDERAL.
 ANDRÉS MANUEL LÓPEZ OBRADOR, Jefe De Gobierno Del Distrito Federal, a sus habitantes sabed:
