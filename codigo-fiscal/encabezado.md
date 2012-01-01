@@ -1,4 +1,4 @@
-CODIGO FISCAL DEL DISTRITO FEDERAL
+CÓDIGO FISCAL DEL DISTRITO FEDERAL
 Código publicado en la Gaceta Oficial del Distrito Federal, el martes 29 de diciembre de 2009.
 DECRETO POR EL QUE SE EXPIDE EL CÓDIGO FISCAL DEL DISTRITO FEDERAL
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)

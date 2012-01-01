@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
+ARTICULO 161 BIS 1.- El factor de actualización aplicable al valor de vehículo que se utiliza de base para el pago de este impuesto será el resultado de dividir el Índice Nacional de Precios al Consumidor publicado por el Instituto Nacional de Estadística y Geografía, correspondiente al mes de noviembre del año anterior al año en que se causa el impuesto, entre el mismo índice del mes de noviembre del año modelo del vehículo, excepto en el caso de vehículos nuevos, caso en que será 1.
