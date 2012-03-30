@@ -1,5 +1,5 @@
 G.O. 1 DE SEPTIEMBRE DE 2011.
-DECRETO POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTICULOS 18, 41, 103, 204 Y 466 DEL CODIGO FISCAL DEL DISTRITO FEDERAL.
+DECRETO POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 18, 41, 103, 204 Y 466 DEL CÓDIGO FISCAL DEL DISTRITO FEDERAL.
 PRIMERO. Publíquese en la Gaceta Oficial del Distrito Federal para su debida observancia y aplicación.
 SEGUNDO. El presente decreto entrará en vigor al día siguiente de su publicación.
 TERCERO. A efecto de dar cumplimiento a lo establecido en el quinto párrafo del artículo 22 de este Código, en el sentido de que las instituciones de crédito y las sociedades civiles o mercantiles deberán auxiliarse para la suscripción de avalúos de un perito independiente, durante los siguientes dos años contados a partir del primero de enero de 2011, de manera excepcional, el examen a que se refiere el Manual de Valuación y Procedimientos Técnicos de Valuación Inmobiliaria para obtener el registro de perito independiente o auxiliar, podrá practicarse en las fechas que al efecto señale la Tesorería del Distrito Federal, fuera de los periodos señalados en el Manual.
