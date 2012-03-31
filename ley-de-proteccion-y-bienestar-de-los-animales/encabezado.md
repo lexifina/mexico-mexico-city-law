@@ -1,4 +1,4 @@
-LEY DE PROTECCION A LOS ANIMALES DEL DISTRITO FEDERAL
+LEY DE PROTECCIÓN A LOS ANIMALES DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el martes 26 de febrero de 2002.
 (Al margen superior izquierdo un escudo que dice: CIUDAD DE MÉXICO.- JEFE DE GOBIERNO DEL DISTRITO FEDERAL)
 ANDRES MANUEL LOPEZ OBRADOR, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:

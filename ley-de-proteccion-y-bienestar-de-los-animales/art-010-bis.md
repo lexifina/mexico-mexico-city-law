@@ -10,6 +10,8 @@ e. Coadyuvar en el rescate de animales silvestres y entregarlos a las autoridade
 f. Retirar animales que participen en plantones o manifestaciones; y
 g. Impedir y remitir ante la autoridad competente a los infractores que celebren y promuevan peleas de perros.
 Las disposiciones contenidas en esta fracción no sustituyen las facultades que sobre esta materia esta Ley otorga a otras entidades y dependencias de la administración pública del Distrito Federal.
+(ADICIONADA, G.O. 30 DE MARZO DE 2012)
+h) Realizar operativos en los mercados y establecimientos que se tengan identificados los cuales se dediquen a la venta de animales, a fin de detectar posibles anomalías en dichos centros y establecimientos.
 III. Coadyuvar en el cumplimiento de las disposiciones de esta Ley;
 IV. Ordenar las medidas de seguridad relacionadas con las fracciones I y IV del artículo 59 de la presente Ley; y
 V. Las demás que esta Ley y demás ordenamientos jurídicos aplicables le confieran.
