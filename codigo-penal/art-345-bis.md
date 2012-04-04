@@ -1,7 +1,7 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADO PRIMER PARRAFO, G.O. 27 DE JUNIO DE 2011)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2011)
 ARTÍCULO 345 BIS. Se le impondrán de tres meses a cinco años de prisión y de 500 a 2,000 días multa, al que derribe, tale, o destruya parcialmente u ocasione la muerte de uno o más árboles.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.O. 27 DE JUNIO DE 2011)
 Las penas previstas en este artículo se duplicarán cuando una o más de las conductas descritas en el párrafo anterior se hayan desarrollado en cualquiera de los siguientes lugares, competencia del Distrito Federal:
 I. En un área natural protegida;
