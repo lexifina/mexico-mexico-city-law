@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, G.O. 26 DE ENERO DE 2009)
 Artículo 5o Bis.- Las dependencias, órganos desconcentrados, entidades y órganos político-administrativos que lleven a cabo visitas de verificación deberán capacitar constantemente a los verificadores administrativos en la materia relativa a su función.
 El personal encargado de la verificación administrativa relativa a los establecimientos mercantiles de las delegaciones serán en todo momento personal con código de confianza.

@@ -10,4 +10,4 @@ OCTAVO.- Los domicilios de las dependencias y entidades competentes para conocer
 NOVENO.- Publíquese en el Diario Oficial de la Federación, para su mayor difusión.
 RECINTO DE LA ASAMBLEA DE REPRESENTANTES DEL DISTRITO FEDERAL, a los veintidós días del mes de noviembre de mil novecientos noventa y cinco.- Rep. Gonzalo Rojas Arreola, Presidente.- Rep. Pilar Pardo Celoria, Secretaria.- Rep. Javier Salido Torres, Secretario.- Rúbricas".
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la residencia del Poder Ejecutivo Federal, en la Ciudad de México, Distrito Federal, a los catorce días del mes de diciembre de mil novecientos noventa y cinco.- Ernesto Zedillo Ponce de León, Rúbrica.- El Jefe del Departamento del Distrito Federal, Oscar Espinosa Villarreal.- Rúbrica.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
