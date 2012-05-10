@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS AL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS AL CÓDIGO.
 (ADICIONADO, G.O. 10 DE OCTUBRE DE 2008)
 ARTICULO 135 Bis.- Pueden pedir el levantamiento de una nueva acta de nacimiento por reasignación de concordancia sexo-genérica, previa la anotación correspondiente en su acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género.
 Se entenderá por identidad de género la convicción personal de pertenecer al género masculino o femenino, es inmodificable, involuntaria y puede ser distinta al sexo original.

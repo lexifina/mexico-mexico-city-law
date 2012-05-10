@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 18 DE AGOSTO DE 2011)
 ARTICULO 323 Séptimus.- En el Registro de Deudores Alimentarios Morosos se harán las inscripciones a que se refiere el articulo 309 del presente Código. Dicho registro contendrá:
 I. Nombre, apellidos y Clave Única del Registro de Población del deudor alimentario moroso;
