@@ -1,0 +1,6 @@
+G.O. 9 DE MAYO DE 2012.
+PRIMERO.- Remítase al Jefe de Gobierno única y exclusivamente para su publicación en la Gaceta Oficial del Distrito Federal.
+SEGUNDO.- El presente decreto entrará en vigor al día siguiente de su aprobación por el Pleno de la Asamblea Legislativa del Distrito Federal.
+TERCERO.- El Fondo al que se refiere la presente Ley es el que actualmente opera la Asamblea a través del contrato de Fideicomiso de Apoyo a la Educación y al Empleo de las y los Jóvenes del D.F., que suscribió el treinta y uno de marzo de dos mil once el Presidente en turno de la Mesa Directiva del Pleno de la Asamblea Legislativa del Distrito Federal, Diputado Sergio Israel Eguren Cornejo, con el Banco Mercantil del Norte S.A. Institución de Banca Múltiple, Grupo Financiero Banorte.
+La Comisión de Gobierno y el Comité Técnico del fideicomiso realizarán las modificaciones al contrato referido en el párrafo anterior para dar cumplimiento al presente decreto.
+CUARTO.- La Asamblea Legislativa del Distrito Federal garantizará que los apoyos hasta el momento otorgados por el Fideicomiso mencionado en el artículo transitorio anterior continúen hasta la conclusión del grado de estudios para el que fueron comprometidos.
