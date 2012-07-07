@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 6 DE JULIO DE 2012)
+Artículo 4 Ter.- Cuando la inversión realizada por el Gobierno del Distrito Federal en la instalación de equipos y sistemas tecnológicos o cualquier infraestructura que se encuentre dentro del marco de regulación de esta ley, sea superior a los cinco mil días de salario mínimo vigente en el Distrito Federal, no podrá ser modificada o retirada sin previo informe a la Contraloría General del Distrito Federal en el que se justifique dicha acción.
