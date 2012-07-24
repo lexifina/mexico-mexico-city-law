@@ -1,3 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, G.O. 23 DE JULIO DE 2012)
+ARTICULO 469 Ter.- Los nombramientos mencionados en el artículo anterior, sólo podrán otorgarse ante notario público y se harán constar en escritura pública, siendo revocable este acto en cualquier tiempo y momento con la misma formalidad.
 (ADICIONADO, G.O. 15 DE MAYO DE 2007)
-ARTICULO 469 Ter.- Los nombramientos mencionados en el artículo anterior, sólo podrán otorgarse ante notario público y se harán constar en escritura pública, debiendo el notario agregar un certificado médico expedido por perito en materia de psiquiatría en los que se haga constar que el otorgante se encuentra en pleno goce de sus facultades mentales y en plena capacidad de autogobernarse, siendo revocable éste acto en cualquier tiempo y momento con la misma formalidad.
 En caso de muerte, incapacidad, excusa, remoción, no aceptación o relevo del cargo del tutor designado, desempeñará la tutela quien o quienes sean sustitutos.
