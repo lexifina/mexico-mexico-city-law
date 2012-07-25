@@ -1,4 +1,4 @@
-LEY DE RESIDUOS SOLIDOS DEL DISTRITO FEDERAL
+LEY DE RESIDUOS SÓLIDOS DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el martes 22 de abril de 2003.
 (Al margen superior izquierdo dos escudos que dicen GOBIERNO DEL DISTRITO FEDERAL.- México - La Ciudad de la Esperanza.- JEFE DE GOBIERNO DEL DISTRITO FEDERAL)
 DECRETO POR EL QUE SE CREA LA LEY DE RESIDUOS SÓLIDOS DEL DISTRITO FEDERAL
