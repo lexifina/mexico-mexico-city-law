@@ -1,5 +1,5 @@
-N. DE E. DE CONFORMIDAD CON EL DECRETO POR EL QUE SE REFORMA Y ADICIONA LA LEY, EL PRESENTE ARTICULO HA SIDO MODIFICADO EN CUANTO A SU ESTRUCTURA; POR TAL MOTIVO, SE PRESENTA EL TEXTO APROBADO Y PUBLICADO EN LA G.O. DE 31 DE OCTUBRE DE 2008.
-(REFORMADO PRIMER PARRAFO, G.O. 31 DE OCTUBRE DE 2008)
+N. DE E. DE CONFORMIDAD CON EL DECRETO POR EL QUE SE REFORMA Y ADICIONA LA LEY, EL PRESENTE ARTÍCULO HA SIDO MODIFICADO EN CUANTO A SU ESTRUCTURA; POR TAL MOTIVO, SE PRESENTA EL TEXTO APROBADO Y PUBLICADO EN LA G.O. DE 31 DE OCTUBRE DE 2008.
+(REFORMADO PRIMER PÁRRAFO, G.O. 31 DE OCTUBRE DE 2008)
 Artículo 15 Bis 4. Las Subprocuradurías de Protección Ambiental y del Ordenamiento Territorial tendrán, en el ámbito de su competencia, las atribuciones genéricas siguientes;
 (REFORMADA, G.O. 31 DE OCTUBRE DE 2008)
 I. Atender las denuncias ciudadanas que les sean turnadas e iniciar investigaciones de oficio, en los supuestos a que se refiere esta Ley, según corresponda, así como sustanciar los procedimientos respectivos;
