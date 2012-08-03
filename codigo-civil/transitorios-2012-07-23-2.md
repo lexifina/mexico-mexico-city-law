@@ -1,5 +1,5 @@
 G.O. 23 DE JULIO DE 2012.
-DECRETO POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DEL CÓDIGO CIVIL PARA EL DISTRITO FEDERAL.
+DECRETO POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DEL CÓGIGO CIVIL PARA EL DISTRITO FEDERAL.
 Primero.- El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial del Distrito Federal.
 Segundo.- Se derogan todas las disposiciones que se opongan al presente decreto.
 Tercero.- Los procesos registrales en curso, en lo que favorezcan a los interesados, deberán ajustarse a las disposiciones del presente Decreto.
