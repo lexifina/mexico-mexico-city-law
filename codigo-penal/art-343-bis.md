@@ -15,3 +15,5 @@ IV.- Un área verde en suelo urbano.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.O. 27 DE JUNIO DE 2011)
 Las penas previstas en este artículo se disminuirán en una mitad cuando, las actividades realizadas, aún siendo diferentes a las previstas en el uso de suelo correspondiente, se encuentren previstas en el programa o programas de ordenamiento ecológico del Distrito Federal, o en el Programa o Programas de Desarrollo Urbano aplicables.
+(ADICIONADO, G.O. 3 DE AGOSTO DE 2012)
+No se considerará violatorio del uso de suelo el supuesto establecido en el artículo 37 de la Ley de Establecimientos Mercantiles.
