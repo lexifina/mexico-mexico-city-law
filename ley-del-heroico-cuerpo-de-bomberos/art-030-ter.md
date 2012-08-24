@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 23 DE AGOSTO DE 2012)
+ARTICULO 30 Ter.- Los recursos del Fideicomiso de Bomberos se ejercerán a solicitud del Director General, previa justificación, ante las instancias competentes, de las necesidades a cubrir, así como del proyecto de presupuesto correspondiente.
+La planeación, programación, presupuestación, contratación, gasto, ejecución, conservación, mantenimiento y control de las adquisiciones, arrendamientos de bienes muebles y prestación de servicios de cualquier naturaleza a cargo del Fideicomiso de Bomberos, se apegará a lo dispuesto por la Ley de Adquisiciones para el Distrito Federal.
+La planeación, programación, presupuestación, gasto, ejecución, conservación, mantenimiento y control de la obra pública y de los servicios relacionados con ésta, que se realicen con recursos del Fideicomiso de Bomberos, se apegará a lo dispuesto por la Ley de Obras Públicas del Distrito Federal; (sic)

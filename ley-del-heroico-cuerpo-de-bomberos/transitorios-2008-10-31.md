@@ -1,5 +1,5 @@
 G.O. 31 DE OCTUBRE DE 2008.
-SE TRANSCRIBEN UNICAMENTE LOS TRANSITORIOS DEL DECRETO DE REFORMAS QUE SE RELACIONAN CON LA LEY.
+SE TRANSCRIBEN ÚNICAMENTE LOS TRANSITORIOS DEL DECRETO DE REFORMAS QUE SE RELACIONAN CON LA LEY.
 PRIMERO.- Publíquese en la Gaceta Oficial del Distrito Federal y para su mayor difusión en el Diario Oficial de la Federación.
 SEGUNDO.- Las presentes modificaciones de ley entrarán en vigor 90 días después de su publicación en la Gaceta Oficial para el Distrito Federal.
 ...
