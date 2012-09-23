@@ -1,0 +1,7 @@
+G.O. 20 DE SEPTIEMBRE DE 2012.
+Primero. Publíquese en la Gaceta Oficial del Distrito Federal.
+Segundo. El presente Decreto entrará en vigor, el primero de enero de dos mil trece, con la excepción prevista en el transitorio siguiente.
+Tercero. La reforma prevista para el párrafo tercero del artículo 691 del Código de Procedimientos Civiles para el Distrito Federal, entrará en vigor a partir del día siguiente de la publicación del presente decreto.
+El importe de $500,000.00 se adecuará para el año 2013 con base en la variación observada por la inflación en el valor del Índice Nacional de Precios al Consumidor, publicado por el Instituto Nacional de Estadística y Geografía, entre el mes de noviembre de 2012 y el mes de noviembre de 2011. Esto con el fin de que el 1° de enero de 2013 la inapelabilidad, la justicia oral y lo que se relacione con ellas, en materia mercantil y civil tomen en cuenta el mismo monto de suerte principal. Después de 2013 la actualización se realizará en términos del artículo 62 del Código de Procedimientos Civiles para el Distrito Federal.
+Cuarto. Los asuntos cuya demanda haya sido admitida con anterioridad a la entrada en vigor de las reformas a que se refiere el presente decreto, en los términos de los transitorios segundo y tercero, se tramitarán conforme a las disposiciones anteriores a él.
+Quinto. Se derogan todas aquellas disposiciones que se opongan al presente decreto.
