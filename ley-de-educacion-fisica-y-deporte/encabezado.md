@@ -1,4 +1,4 @@
-LEY DE EDUCACION FISICA Y DEPORTE DEL DISTRITO FEDERAL
+LEY DE EDUCACIÓN FÍSICA Y DEPORTE DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el viernes 4 de enero de 2008.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 LEY DE EDUCACIÓN FÍSICA Y DEPORTE DEL DISTRITO FEDERAL
