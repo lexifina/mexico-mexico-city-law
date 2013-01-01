@@ -1,4 +1,7 @@
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
+(ADICIONADA, G.O. 31 DE DICIEMBRE DE 2012)
+Sección Quinta
+OTROS VEHÍCULOS USADOS
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 161 BIS 14.- Tratándose de embarcaciones, veleros, esquís acuáticos motorizados, motocicletas acuáticas y tablas de oleaje con motor, usados, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 a) El valor total del vehículo de que se trate se multiplicará por el factor de depreciación de acuerdo al año modelo, de conformidad con la siguiente:
 TABLA:

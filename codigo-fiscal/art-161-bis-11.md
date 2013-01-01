@@ -1,2 +1,2 @@
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 161 BIS 11.- La autoridad fiscal informará del cumplimiento de pago del impuesto a que se refiere esta Sección a las autoridades competentes para expedir los certificados de aeronavegabilidad o de inspección de seguridad a embarcaciones y los certificados de matrícula para las aeronaves, a fin de ser considerado para efectos de su expedición conforme al convenio que al efecto se suscriba.

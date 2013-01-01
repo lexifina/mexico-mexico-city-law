@@ -1,4 +1,4 @@
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 161 BIS 13.- Tratándose de automóviles de fabricación nacional o importados, destinados al transporte de hasta quince pasajeros, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 a) El valor total del automóvil se multiplicará por el factor de depreciación, de acuerdo al año modelo del vehículo, de conformidad con la siguiente:
 TABLA:

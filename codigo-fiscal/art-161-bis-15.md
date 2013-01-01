@@ -1,4 +1,4 @@
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 161 BIS 15.- Tratándose de motocicletas de fabricación nacional o importadas, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 El valor total de la motocicleta se multiplicará por el factor de depreciación, de acuerdo al año modelo de la motocicleta, de conformidad con la siguiente:
 TABLA:

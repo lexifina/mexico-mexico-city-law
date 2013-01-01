@@ -1,6 +1,7 @@
-(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.O. 30 DE DICIEMBRE DE 2011)
-Sección Segunda
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
+(REFORMADA, G.O. 31 DE DICIEMBRE DE 2012)
+Sección Primera
+DISPOSICIONES GENERALES
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 161 BIS 4.- En el caso de vehículos nuevos o importados, el impuesto deberá calcularse y enterarse en el momento en el cual se solicite el registro del vehículo, permiso provisional para circulación en traslado o alta del vehículo.
 Los importadores ocasionales efectuarán el pago del impuesto a que se refiere este Capítulo, correspondiente al primer año de calendario en el momento en que los vehículos queden a su disposición en la aduana, recinto fiscal o fiscalizado o en el caso de importación temporal al convertirse en definitiva.
 Para los efectos del párrafo anterior el impuesto se entenderá causado en el momento en que queden a su disposición en la aduana, recinto fiscal o fiscalizado o en el caso de importación temporal al convertirse en definitiva.
