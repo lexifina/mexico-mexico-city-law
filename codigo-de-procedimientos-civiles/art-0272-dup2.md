@@ -1,11 +1,11 @@
 ARTICULO 272-A
-(REFORMADO PRIMER PARRAFO, G.O. 3 DE OCTUBRE DE 2008)
+(REFORMADO PRIMER PÁRRAFO, G.O. 3 DE OCTUBRE DE 2008)
 Una vez contestada la demanda, y en su caso, la reconvención el Juez señalará de inmediato fecha y hora para la celebración de una audiencia previa y de conciliación dentro de los diez días siguientes, dando vista a la parte que corresponda con las excepciones que se hubieren opuesto en su contra, por el término de tres días.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(DEROGADO SEGUNDO PARRAFO, G.O. 3 DE OCTUBRE DE 2008) (REPUBLICADO, G.O. 10 DE SEPTIEMBRE DE 2009)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(DEROGADO SEGUNDO PÁRRAFO, G.O. 3 DE OCTUBRE DE 2008) (REPUBLICADO, G.O. 10 DE SEPTIEMBRE DE 2009)
 (REFORMADO, G.O. 3 DE OCTUBRE DE 2008)
 Si asistieran las dos partes, el juez examinará las cuestiones relativas a la legitimación procesal y luego se procederá a procurar la conciliación que estará a cargo del conciliador adscrito al juzgado. El conciliador preparará y propondrá a las partes, alternativas de solución al litigio. Si los interesados llegan a un convenio, el juez lo aprobará de plano si procede legalmente y dicho pacto tendrá fuerza de cosa juzgada. En los casos de divorcio, si los cónyuges llegan a un acuerdo respecto al convenio, el juez dictará un auto en el cual decrete la disolución del vínculo matrimonial y la aprobación del convenio sin necesidad de dictar sentencia.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.O. 10 DE SEPTIEMBRE DE 2009)
 En caso de desacuerdo entre los litigantes, la audiencia proseguirá y el juez, que dispondrá de amplias facultades de dirección procesal, examinará en su caso, las excepciones procesales que correspondan.
 (REFORMADO [N. DE E., ADICIONADO], G.O. 3 DE OCTUBRE DE 2008)

@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.O. 10 DE SEPTIEMBRE DE 2009)
 ARTICULO 65 BIS
 En el caso de detectarse, por el juez, la realización de cualquier acción tendiente a burlar el turno establecido en las oficialías de parte comunes, una vez presentado un escrito por el cual se inicie un procedimiento, ya sea exhibiendo varios de estos para elegir el juzgado que convenga, o desistiéndose de la instancia más de una vez, sin acreditar la necesidad de hacerlo, o cualquiera acción similar, la parte promovente y sus abogados patronos se harán acreedores, solidariamente, a una multa que será fijada por el juez, la que no será inferior a seis mil pesos ni superior de treinta mil pesos, dicho monto se actualizará en los términos que establece la fracción II del artículo 62 de este código.

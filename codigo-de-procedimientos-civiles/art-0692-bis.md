@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 10 DE SEPTIEMBRE DE 2009)
 ARTICULO 692 BIS
 Además de los casos determinados expresamente en la ley, en la forma y términos que se establecen en este capítulo, se tramitarán de inmediato, en efecto devolutivo los supuestos previstos en las fracciones I a VI, y en ambos efectos la hipótesis prevista en la fracción VII, según proceda, las apelaciones que se interpongan contra:

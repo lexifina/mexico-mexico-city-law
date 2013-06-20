@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 10 DE OCTUBRE DE 2008)
 ARTICULO 498 BIS 3
 Además de los otros medios de prueba, el promovente deberá comparecer a la audiencia con los peritos que hayan emitido los dictámenes en que se funde la demanda. En caso de ausencia de los peritos, se tendrá por desierta la probanza.

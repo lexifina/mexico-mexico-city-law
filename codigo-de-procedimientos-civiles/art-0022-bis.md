@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 10 DE SEPTIEMBRE DE 2009)
 ARTICULO 22 BIS
 El que sea llamado a juicio para que le pare perjuicio la sentencia podrá comparecer al mismo en un plazo de quince días; y estará en aptitud de ofrecer pruebas, alegar e interponer toda clase de defensas y recursos.

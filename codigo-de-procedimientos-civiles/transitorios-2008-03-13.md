@@ -1,5 +1,5 @@
 G.O. 13 DE MARZO DE 2008.
-SE TRANSCRIBEN UNICAMENTE LOS TRANSITORIOS DEL DECRETO DE REFORMAS QUE SE RELACIONAN CON EL CODIGO.
+SE TRANSCRIBEN ÚNICAMENTE LOS TRANSITORIOS DEL DECRETO DE REFORMAS QUE SE RELACIONAN CON EL CÓDIGO.
 PRIMERO.- El presente Decreto entrará en vigor el día primero de julio del año dos mil ocho.
 SEGUNDO.- La Asamblea Legislativa del Distrito Federal, autorizará a la Administración Pública del Distrito Federal, los recursos materiales y financieros necesarios para que la Consejería Jurídica y de Servicios Legales, dé cumplimiento al contenido de este Decreto.
 TERCERO.- Las personas que hayan sufrido únicamente daños causados culposamente con motivo del tránsito de vehículos antes de la entrada en vigor de este Decreto y de los que no se haya presentado querella ante la autoridad ministerial, podrán, en caso que así lo deseen, demandar su pago ante del Juez de Paz Civil competente, de acuerdo al nuevo procedimiento previsto en el presente Decreto y dentro del plazo de un año contado a partir que ocurrieron los hechos.

@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 10 DE OCTUBRE DE 2008)
 ARTICULO 498 BIS 7
 El Juez ordenará de oficio, dentro del término de cinco días hábiles posteriores a que cause ejecutoria la sentencia favorable, que se realice a favor de la persona la anotación correspondiente al acta de nacimiento primigenia y el levantamiento de una nueva acta de nacimiento por reasignación de concordancia sexo-genérica.
