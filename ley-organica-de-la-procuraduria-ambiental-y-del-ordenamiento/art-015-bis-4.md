@@ -26,8 +26,12 @@ XI. Elaborar, en coordinación con la Subprocuraduría de Asuntos Jurídicos, lo
 (REFORMADA, G.O. 31 DE OCTUBRE DE 2008)
 XII. Dar respuesta en forma oportuna, debidamente fundada y motivada a las denuncias ciudadanas presentadas y ratificadas ante la Procuraduría, notificando al interesado el resultado de las visitas de reconocimiento de hechos, de las acciones precautorias que se hayan solicitado a las autoridades competentes o las diligencias realizadas;
 (REFORMADA, G.O. 31 DE OCTUBRE DE 2008)
-XIII. Solicitar la comparecencia de las personas mencionadas en las denuncias ciudadanas, que sean admitidas o en las investigaciones de oficio que tramite, a fin de desahogar las diligencias que correspondan o manifestar lo que a su derecho convenga, y
-(REFORMADA, G.O. 31 DE OCTUBRE DE 2008)
-XIV. Las demás que le confieren otros ordenamientos jurídicos o administrativos, aplicables o las que les sean encomendadas, por acuerdo del Procurador (a) y las que correspondan a las unidades administrativas a su cargo.
+XIII. Solicitar la comparecencia de las personas mencionadas en las denuncias ciudadanas, que sean admitidas o en las investigaciones de oficio que tramite, a fin de desahogar las diligencias que correspondan o manifestar lo que a su derecho convenga, y (sic)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA LEY.
+(REFORMADA, G.O. 17 DE SEPTIEMBRE DE 2013)
+XIV. Resolver las denuncias relativas al daño o menoscabo que se cause a la Tierra y sus recursos naturales.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA LEY.
+(REFORMADA [N. DE E. ADICIONADA], G.O. 17 DE SEPTIEMBRE DE 2013)
+XV. Las demás que le confieren otros ordenamientos jurídicos o administrativos, aplicables o las que les sean encomendadas, por acuerdo del Procurador (a) y las que correspondan a las unidades administrativas a su cargo.
 (REFORMADO, G.O. 31 DE OCTUBRE DE 2008)
 El Reglamento establecerá los mecanismos de coordinación y transversalidad que permitan, según corresponda, una actuación eficiente y eficaz de las Subprocuradurías entre si y de éstas con otras unidades administrativas de la Procuraduría, en el ejercicio de sus atribuciones.

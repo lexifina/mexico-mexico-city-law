@@ -1,0 +1,6 @@
+G.O. 17 DE SEPTIEMBRE DE 2013.
+PRIMERO.- El presente decreto entrará en vigor a los treinta días siguientes de su publicación en la Gaceta Oficial del Distrito Federal.
+SEGUNDO.- La modificación y adecuación de la reglamentación de estas leyes deberá ser expedida dentro de los ciento ochenta días hábiles siguientes a la entrada en vigor de este ordenamiento.
+TERCERO.- En tanto se expidan las disposiciones administrativas que deriven de la presente reforma seguirán en vigor aquéllas que no la contravengan.
+CUARTO.- Todos los procedimientos y recursos administrativos relacionados con las materias de esta ley iniciadas con anterioridad a la entrada en vigor del presente decreto, se tramitarán y resolverán conforme a las disposiciones vigentes en ese momento.
+QUINTO.- Las reformas a la Ley Ambiental del Distrito Federal, turnadas a la Comisión de Preservación del Medio Ambiente, Protección Ecológica y Cambio Climático, durante el Primer Periodo Ordinario, el Primer Receso y el Segundo Periodo Ordinario, del Primer Año de Ejercicio, y las que se presenten en lo sucesivo, relativo a la Ley Ambiental del Distrito Federal, se entenderán referidas a la Ley Ambiental de Protección a la Tierra en el Distrito Federal.
