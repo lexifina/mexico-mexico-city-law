@@ -6,7 +6,8 @@ III. Modelo, todas aquellas versiones de la carrocería básica con dos, tres, c
 IV. Versión, cada una de las distintas presentaciones comerciales que tiene un modelo.
 V. Línea:
 a). Automóviles con motor de gasolina o gas hasta de 4 cilindros.
-b). Automóviles con motor de gasolina o gas de 6 u 8 cilindros.
+(REFORMADO, G. O. 31 DE DICIEMBRE DE 2013)
+b). Automóviles con motor de gasolina o gas de 5, 6 u 8 cilindros.
 c). Automóviles con motor diesel.
 d). Camiones con motor de gasolina, gas o diesel.
 e). Tractores no agrícolas tipo quinta rueda.
