@@ -1,5 +1,6 @@
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, G.O. 29 DE ENERO DE 2004)
 CAPÍTULO VI
 RESPONSABILIDAD DE LOS DIRECTORES RESPONSABLES DE OBRA O CORRESPONSABLES
-(ADICIONADO, G.O. 29 DE ENERO DE 2004)
-ARTÍCULO 329 BIS. Al Director Responsable de Obra o Corresponsable de Obra que permita el desarrollo de la obra, en la que otorgó su responsiva, sin apego a la licencia, autorización, permiso, registro o conforme a las disposiciones aplicables, se le impondrá de dos a cinco años de prisión y de cuatrocientos a setecientos días multa, así como suspensión para desempeñar profesión u oficio hasta por un periodo igual a la pena de prisión impuesta.
+(REFORMADO, G.O. 10 DE ENERO DE 2014)
+ARTÍCULO 329 BIS. Al Director Responsable de Obra o Corresponsable de Obra que autorice o permita el desarrollo de una construcción, de la que otorgó su responsiva, sin apego a la licencia, autorización, permiso, registro o la normativa vigente relativa al desarrollo urbano, construcciones, inmuebles y ordenamiento territorial para el Distrito Federal, se le impondrá de cuatro a seis años seis meses de prisión y de mil a diez mil días multa, así como suspensión para desempeñar profesión u oficio hasta por un periodo igual a la pena de prisión impuesta.
+La misma sanción se impondrá al propietario del inmueble donde se desarrolla la construcción, su representante legal o el constructor, que teniendo conocimiento permita la edificación sin apego a la licencia, autorización, permiso, registro o la normativa vigente relativa al desarrollo urbano, construcciones, inmuebles y ordenamiento territorial para el Distrito Federal, con relación a la altura, número de niveles y área libre permitidas, siempre que no lo denuncie a la autoridad competente.
