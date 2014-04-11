@@ -1,0 +1,10 @@
+LEY PARA EL DESARROLLO ECONÓMICO DEL DISTRITO FEDERAL
+Ley publicada en la Gaceta Oficial del Distrito Federal, el jueves 10 de abril de 2014.
+DECRETO POR EL QUE SE EXPIDE LA LEY PARA EL DESARROLLO ECONÓMICO DEL DISTRITO FEDERAL.
+MIGUEL ÁNGEL MANCERA ESPINOSA, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:
+Que la H. Asamblea Legislativo del Distrito Federal, VI Legislatura se ha servido dirigirme el siguiente
+DECRETO
+ASAMBLEA LEGISLATIVA DEL DISTRITO FEDERAL
+VI LEGISLATURA.
+DECRETA
+DECRETO POR EL QUE SE EXPIDE LA LEY PARA EL DESARROLLO ECONÓMICO DEL DISTRITO FEDERAL.
