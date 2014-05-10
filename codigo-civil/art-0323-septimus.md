@@ -1,9 +1,10 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
-(ADICIONADO, G.O. 18 DE AGOSTO DE 2011)
-ARTICULO 323 Séptimus.- En el Registro de Deudores Alimentarios Morosos se harán las inscripciones a que se refiere el articulo 309 del presente Código. Dicho registro contendrá:
-I. Nombre, apellidos y Clave Única del Registro de Población del deudor alimentario moroso;
-II. Nombre del acreedor o acreedores alimentarios;
-III. Datos del acta que acrediten el vínculo entre deudor y acreedor alimentario, en su caso;
-IV. Numero de pagos incumplidos y monto del adeudo alimentario;
-V. Órgano jurisdiccional que ordena el registro; y
-VI. Datos del expediente o causa jurisdiccional de la que deriva su inscripción.
+(ADICIONADO, G.O. 9 DE MAYO DE 2014)
+ARTICULO 323 Septimus.- Comete violencia familiar el integrante de la familia que transforma la conciencia de un menor con el objeto de impedir, obstaculizar o destruir sus vínculos con uno de sus progenitores.
+La conducta descrita en el párrafo anterior, se denomina alienación parental cuando es realizada por uno de los padres, quien, acreditada dicha conducta, será suspendido en el ejercicio de la patria potestad del menor y, en consecuencia, del régimen de visitas y convivencias que, en su caso, tenga decretado. Asimismo, en caso de que el padre alienador tenga la guarda y custodia del niño, ésta pasará de inmediato al otro progenitor, si se trata de un caso de alienación leve o moderada.
+En el supuesto de que el menor presente un grado de alienación parental severo, en ningún caso, permanecerá bajo el cuidado del progenitor alienador o de la familia de éste, se suspenderá todo contacto con el padre alienador y el menor será sometido al tratamiento que indique el especialista que haya diagnosticado dicho trastorno.
+A fin de asegurar el bienestar del menor, y en caso de que, por su edad, resulte imposible que viva con el otro progenitor, el departamento de psicología del Tribunal Superior de Justicia del Distrito Federal, evaluando a los parientes más cercanos del niño, determinará qué persona quedará encargada de su cuidado; mientras recibe el tratamiento respectivo que haga posible la convivencia con el progenitor no alienador.
+El tratamiento para el niño alienado será llevado a cabo en el Departamento de Alienación Parental del Servicio Médico Forense del Tribunal Superior de Justicia del Distrito Federal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE CAPÍTULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.O. 18 DE AGOSTO DE 2011)
+CAPITULO IV
+Del Registro de Deudores Alimentarios Morosos
