@@ -1,4 +1,4 @@
-LEY DE LA PROCURADURIA SOCIAL DEL DISTRITO FEDERAL
+LEY DE LA PROCURADURÍA SOCIAL DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el jueves 3 de febrero de 2011.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 MARCELO LUIS EBRARD CASAUBON, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:
