@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.O. 17 DE MAYO DE 2004)
+(REFORMADO PRIMER PÁRRAFO, G.O. 17 DE MAYO DE 2004)
 ARTICULO 75 bis.- Para efectos del artículo 73, las garantías de sostenimiento de la propuesta, la de cumplimiento de contrato y anticipo podrán presentarse mediante:
 I. (DEROGADA, G.O. 7 DE ABRIL DE 2011)
 II. (DEROGADA, G.O. 7 DE ABRIL DE 2011)
