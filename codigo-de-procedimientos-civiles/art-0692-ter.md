@@ -1,5 +1,5 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
-(ADICIONADO, G.O. 10 DE SEPTIEMBRE DE 2009)
 ARTICULO 692 TER
-En los casos no previstos en el artículo anterior la parte que se sienta agraviada por una determinación judicial, dentro del término de tres días contados a partir del día siguiente en que surta efectos su notificación, deberá por escrito interponer el recurso de apelación sin expresión de agravios, que se admitirá en efecto devolutivo de tramitación preventiva.
-De no interponerse el recurso que se menciona en el párrafo anterior, se tendrá por firme la resolución y por precluido el derecho del afectado para hacerlo valer con posterioridad.
+(REFORMADO, G.O. 14 DE JULIO DE 2014)
+En los casos no previstos en el artículo anterior, la parte que se sienta agraviada por una determinación judicial, dentro del término de tres días contados a partir del día siguiente en que surta efectos su notificación, deberá por escrito interponer el recurso de apelación sin expresión de agravios, que se admitirá en efecto devolutivo de tramitación preventiva, debiendo quedar en el expediente original, previo a la integración del o los correspondientes cuadernos de agravios para su remisión a la alzada, copia certificada tanto del escrito de interposición del recurso en cita como del de la expresión de agravios, de la contestación a los mismos, y los acuerdos recaídos a tales escritos.
+(REFORMADO, G.O. 14 DE JULIO DE 2014)
+De no interponerse el recurso que se menciona en el párrafo anterior, se tendrá por firme la resolución sin necesidad de declaración judicial, y por precluído el derecho del afectado para hacerlo valer con posterioridad.
