@@ -1,7 +1,8 @@
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 18 DE AGOSTO DE 2011) (REUBICADO [N. DE E. ANTES ARTÍCULO 323 SÉPTIMUS], G.O. 9 DE MAYO DE 2014)
-ARTICULO 323 Octavus.- En el Registro de Deudores Alimentarios Morosos se harán las inscripciones a que se refiere el articulo 309 del presente Código. Dicho registro contendrá:
-I. Nombre, apellidos y Clave Única del Registro de Población del deudor alimentario moroso;
+ARTICULO 323 OCTAVUS.- En el Registro de Deudores Alimentarios Morosos se harán las inscripciones a que se refiere el artículo 309 del presente Código. Dicho registro contendrá:
+(REFORMADA, G.O. 28 DE JULIO DE 2014)
+I. Nombre, apellidos, Registro Federal de Contribuyentes y Clave Única del Registro de Población del deudor alimentario moroso;
 II. Nombre del acreedor o acreedores alimentarios;
 III. Datos del acta que acrediten el vínculo entre deudor y acreedor alimentario, en su caso;
 IV. Numero de pagos incumplidos y monto del adeudo alimentario;

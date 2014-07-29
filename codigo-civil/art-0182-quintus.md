@@ -1,6 +1,6 @@
 (ADICIONADO, G.O. 25 DE MAYO DE 2000)
 ARTICULO 182 Quintus.- En la sociedad conyugal son propios de cada cónyuge, salvo pacto en contrario que conste en las capitulaciones matrimoniales:
-I.- Los bienes y derechos que le pertenezcan al tiempo de celebrarse el matrimonio, y los que posea antes de éste, aunque no fuera dueño de ellos, silos adquiere por prescripción durante el matrimonio;
+I.- Los bienes y derechos que le pertenezcan al tiempo de celebrarse el matrimonio, y los que posea antes de éste, aunque no fuera dueño de ellos, si los adquiere por prescripción durante el matrimonio;
 II.- Los bienes que adquiera después de contraído el matrimonio, por herencia, legado, donación o don de la fortuna;
 III.- Los bienes adquiridos por cualquier título propio que sea anterior al matrimonio, aunque la adjudicación se haya hecho después de la celebración de éste; siempre que todas las erogaciones que se generen para hacerlo efectivo, corran a cargo del dueño de éste;
 IV.- Los bienes que se adquieran con el producto de la venta o permuta de bienes propios;
