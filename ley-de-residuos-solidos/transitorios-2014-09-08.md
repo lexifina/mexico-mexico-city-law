@@ -1,0 +1,8 @@
+G.O. 8 DE SEPTIEMBRE DE 2014.
+PRIMERO.- Publíquese en la Gaceta Oficial del Distrito Federal, para su debida observancia y aplicación.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
+TERCERO.- La Secretaría del Medio Ambiente del Distrito Federal contará con un plazo de 60 días hábiles contados a partir de la entrada en vigor del presente Decreto para llevar a cabo la implementación del Registro de establecimientos mercantiles y de servicios que se refiere la fracción XVIII del artículo 6º del presente Decreto.
+CUARTO.- Una vez transcurridos los 60 días hábiles señalados en el artículo TERCERO transitorio del presente Decreto; los titulares de establecimientos mercantiles y de servicios contarán con un plazo de 90 días para efectuar ante la Secretaría del Medio Ambiente del Distrito Federal su registro.
+QUINTO.- En consecuencia, la Secretaría del Medio Ambiente, la Secretaría de Obras y Servicios y las Delegaciones iniciarán en el ámbito de su respectiva competencia y de manera coordinada la implementación de medidas y mecanismos tendientes a organizar la estructura e instalar la infraestructura necesaria para el cumplimiento a estas disposiciones e iniciarán una campaña para difundirlas entre la población.
+SEXTO.- El Jefe de Gobierno del Distrito Federal contará con un plazo de 90 días hábiles contados a partir de la entrada en vigor del presente Decreto para realizar los cambios necesarios a la normatividad en la materia y adecuarlos al contenido del presente Decreto.
+SÉPTIMO.- Se derogan todas aquellas disposiciones que contravengan el contenido del presente Decreto.

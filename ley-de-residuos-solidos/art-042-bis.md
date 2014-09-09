@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 8 DE SEPTIEMBRE DE 2014)
+Artículo 42 Bis. Los prestadores de servicio de recolección privada y los centros de acopio para su operación en el Distrito Federal, deberán de contar con la Licencia Ambiental Única del Distrito Federal y deberán presentar su plan de manejo ante la Secretaría en los formatos que esta autoridad determine. La contravención a lo dispuesto en el presente artículo será motivo de las medidas de seguridad y/o sanciones que resulten aplicables.
