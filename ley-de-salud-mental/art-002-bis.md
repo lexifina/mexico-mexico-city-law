@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 11 DE SEPTIEMBRE DE 2014)
+Artículo 2° Bis. Emoción es una reacción psicofisiológica que representa modos de adaptación a ciertos estímulos que son relevantes para el individuo, esto es: un sentimiento que se puede manifestar con cambios físicos, como la expresión de la cara, aumento de la frecuencia cardiaca y otros regulados por el sistema nervioso autónomo, y la salud emocional se refiere al equilibrio entre los sentimientos y sus repercusiones físicas.

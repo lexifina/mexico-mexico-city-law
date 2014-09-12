@@ -1,0 +1,5 @@
+G.O. 11 DE SEPTIEMBRE DE 2014.
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial.
+SEGUNDO.- La Secretaría de Salud del Distrito Federal en coordinación con la sociedad civil organizada dentro de los canales respectivos y cumpliendo con la normatividad aplicable, deberá proponer un programa piloto de las demás técnicas de medicina integrativa que no se encuentran contempladas dentro del artículo 24 de la Ley de Salud del Distrito Federal, dentro de los 15 días hábiles posteriores a la publicación del presente decreto.
+TERCERO.- La Asamblea Legislativa del Distrito Federal autorizará para el ejercicio fiscal 2015 los recursos presupuestales necesarios para que la Secretaría de Salud del Distrito Federal pueda cumplir con lo dispuesto en el ARTÍCULO SEGUNDO TRANSITORIO del presente Decreto.
+CUARTO.- Remítase el presente Decreto al Jefe de Gobierno del Distrito Federal, para su promulgación y publicación en la Gaceta Oficial del Distrito Federal y para su mayor difusión en el Diario Oficial de la Federación.
