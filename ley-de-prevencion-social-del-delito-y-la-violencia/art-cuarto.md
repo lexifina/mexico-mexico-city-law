@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Dentro de un plazo de 90 días naturales contados a partir de la entrada en vigor de esta Ley, se deberá emitir el Reglamento para la integración y funcionamiento del Consejo de Prevención Social del Delito y la Violencia en el Distrito Federal.
