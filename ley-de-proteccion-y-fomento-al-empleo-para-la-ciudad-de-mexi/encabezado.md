@@ -1,4 +1,4 @@
-LEY DE PROTECCION Y FOMENTO AL EMPLEO PARA EL DISTRITO FEDERAL
+LEY DE PROTECCIÓN Y FOMENTO AL EMPLEO PARA EL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el miércoles 8 de octubre de 2008.
 MARCELO LUIS EBRARD CASAUBON, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:
 Que la H. Asamblea Legislativa del Distrito Federal, IV Legislatura, se ha servido dirigirme el siguiente:

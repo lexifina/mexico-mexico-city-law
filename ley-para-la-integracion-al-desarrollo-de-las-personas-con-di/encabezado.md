@@ -1,4 +1,4 @@
-LEY PARA LA INTEGRACION AL DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DEL DISTRITO FEDERAL
+LEY PARA LA INTEGRACIÓN AL DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el viernes 10 de septiembre de 2010.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 MARCELO LUIS EBRARD CASAUBON, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:

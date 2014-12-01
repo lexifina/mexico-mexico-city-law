@@ -1,4 +1,4 @@
-LEY DE LA UNIVERSIDAD AUTONOMA DE LA CIUDAD DE MEXICO
+LEY DE LA UNIVERSIDAD AUTÓNOMA DE LA CIUDAD DE MÉXICO
 Ley publicada en la Gaceta Oficial del Distrito Federal, el miércoles 5 de enero de 2005.
 (Al margen superior izquierdo dos escudos que dicen: GOBIERNO DEL DISTRITO FEDERAL.- México, la Ciudad de la Esperanza.- JEFE DE GOBIERNO DEL DISTRITO FEDERAL)
 LEY DE LA UNIVERSIDAD AUTÓNOMA DE LA CIUDAD DE MÉXICO

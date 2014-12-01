@@ -1,5 +1,5 @@
-N. DE E. PARA SU ENTRADA EN VIGOR, VEASE ARTICULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS.
-(REFORMADO PRIMER PARRAFO, G.O. 4 DE MARZO DE 2008)
+N. DE E. PARA SU ENTRADA EN VIGOR, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO DE REFORMAS.
+(REFORMADO PRIMER PÁRRAFO, G.O. 4 DE MARZO DE 2008)
 Artículo 9 Ter.- La prevención del tabaquismo tiene carácter prioritario, haciendo énfasis en la infancia y la adolescencia, con enfoque de género, y comprenderá las siguientes acciones:
 (ADICIONADA, G.O. 1 DE NOVIEMBRE DE 2007)
 I. La promoción de la salud, que considerará el desarrollo de actitudes que favorezcan estilos de vida saludables en la familia, la escuela, el trabajo y la comunidad;
