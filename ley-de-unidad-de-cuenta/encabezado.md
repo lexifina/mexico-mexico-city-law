@@ -1,0 +1,18 @@
+LEY DE UNIDAD DE CUENTA DE LA CIUDAD DE MÉXICO
+N. DE E. DE CONFORMIDAD CON EL SEGUNDO TRANSITORIO, EL PRESENTE ORDENAMIENTO ENTRA EN VIGOR JUNTO CON EL PAQUETE ECONÓMICO CORRESPONDIENTE AL EJERCICIO FISCAL 2015.
+Ley publicada en la Gaceta Oficial del Distrito Federal, el viernes 28 de noviembre de 2014.
+ADMINISTRACIÓN PÚBLICA DEL DISTRITO FEDERAL
+JEFATURA DE GOBIERNO
+DECRETO POR EL QUE SE EXPIDE LA LEY DE UNIDAD DE CUENTA DE LA
+CIUDAD DE MÉXICO.
+(Al margen superior un escudo que dice: CIUDAD DE MÉXICO.- Decidiendo Juntos)
+MIGUEL ÁNGEL MANCERA ESPINOSA, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:
+Que la H. Asamblea Legislativa del Distrito Federal, VI Legislatura se ha servido dirigirme el siguiente:
+D E C R E T O
+(Al margen superior izquierdo el Escudo Nacional que dice: ESTADOS UNIDOS MEXICANOS.- ASAMBLEA LEGISLATIVA DEL DISTRITO FEDERAL.- VI LEGISLATURA)
+ASAMBLEA LEGISLATIVA DEL DISTRITO FEDERAL
+VI LEGISLATURA.
+D E C R E T A
+DECRETO POR EL SE EXPIDE LA LEY DE UNIDAD DE CUENTA DE LA CIUDAD DE MÉXICO.
+ÚNICO.- Se expide la Ley de Unidad de Cuenta de la Ciudad de México, para quedar como sigue:
+LEY DE LA UNIDAD DE CUENTA DE LA CIUDAD DE MÉXICO
