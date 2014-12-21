@@ -1,4 +1,4 @@
-LEY DEL FONDO DE APOYO A LA PROCURACION DE JUSTICIA EN EL DISTRITO FEDERAL
+LEY DEL FONDO DE APOYO A LA PROCURACIÓN DE JUSTICIA EN EL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el jueves 17 de mayo de 2007.
 (Al margen superior un sello que dice: Ciudad de México.- Capital en Movimiento)
 MARCELO LUIS EBRARD CASAUBON, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:

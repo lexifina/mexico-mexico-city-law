@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
+ARTÍCULO 310 BIS Al que para obtener un beneficio indebido para sí o para otro, altere antecedentes, medios o datos de prueba y los presente en la audiencia intermedia o de debate, o realice cualquier otro acto tendente a inducir a error al órgano jurisdiccional o administrativo, con el fin que se señala en el artículo anterior, se le impondrá la sanción prevista en el artículo anterior. Este delito se perseguirá por querella, en los términos del artículo anterior.

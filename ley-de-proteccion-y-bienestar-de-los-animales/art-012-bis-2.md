@@ -4,7 +4,7 @@ I. Tener un médico veterinario zootecnista debidamente capacitado como responsa
 II. Dar capacitación permanente a su personal a fin de asegurar un manejo adecuado;
 III. Proveer alimento y agua suficiente en todo momento a los animales resguardados;
 IV. Tener un técnico capacitado en sacrificio de acuerdo a las normas vigentes para tal efecto;
-V. Emitir una constancia del estado general del animal tanto a su ingreso como a su salida; y (sic)
+V. Emitir una constancia del estado general del animal tanto a su ingreso como a su salida; y
 VI. Separar y atender a los animales que estén lastimados, heridos o presenten signos de enfermedad infecto contagiosa;
 (ADICIONADA, G.O. 28 DE NOVIEMBRE DE 2008)
 VII. Disponer de vehículos para la captura y traslado de animales abandonados;

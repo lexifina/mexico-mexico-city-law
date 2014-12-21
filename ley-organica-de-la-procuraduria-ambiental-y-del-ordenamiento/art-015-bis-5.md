@@ -21,7 +21,8 @@ a) Representar el interés legítimo de las personas, que resulten o puedan resu
 XVI. Solicitar informes y documentación a las autoridades y a las personas involucradas, para el inicio o desahogo de los procedimientos administrativos de su competencia;
 XVII. Participar, en coordinación con las autoridades competentes, en la formulación de normas ambientales y de ordenación, reglamentos, estudios y programas relacionados con las disposiciones jurídicas de competencia de la Procuraduría;
 XVIII. Elaborar los proyectos de convenios de coordinación, de la Procuraduría con autoridades Federales, Estatales, Municipales y del Distrito Federal, para el cumplimiento de sus atribuciones;
-XIX. Certificar los documentos que obren en el archivo de la Procuraduría, cuando deban ser exhibidos en procedimientos judiciales, contenciosos, administrativos y en general, para cualquier proceso, procedimiento o averiguación;
+(REFORMADA, G.O. 18 DE DICIEMBRE DE 2014)
+XIX. Certificar los documentos que obren en el archivo de la Procuraduría, cuando deban ser exhibidos en procedimientos judiciales, contenciosos, administrativos y en general, para cualquier proceso, procedimiento, averiguación o investigación;
 XX. Archivar y resguardar los expedientes y documentos de trámite, anexos, de las investigaciones de oficio y de las denuncias concluidas por la Procuraduría;
 XXI. Apoyar a las Subprocuradurías, en el seguimiento de las Sugerencias que emita la Procuraduría;
 XXII. Participar y en su caso elaborar: Estudios, reportes e informes especiales, conforme a los lineamientos que emita el Procurador (a);

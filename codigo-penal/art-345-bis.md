@@ -9,5 +9,6 @@ II. En un área de valor ambiental;
 III. En suelo de conservación;
 IV. En una barranca; o
 V. En un área verde en suelo urbano.
-(ADICIONADO, G.O. 13 DE ENERO DE 2004)
-Cuando una o más de las conductas descritas en el presente artículo resulte cometida a nombre, bajo el amparo o a beneficio de una persona moral, a ésta se le impondrá la consecuencia jurídica accesoria consistente en la prohibición de realizar determinados negocios u operaciones hasta por 5 años, independientemente de la responsabilidad en que hubieren incurrido las personas físicas por el delito cometido.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.O. 18 DE DICIEMBRE DE 2014)
+Cuando una o más de las conductas descritas en el presente artículo resulte cometida a nombre, bajo el amparo o a beneficio de una persona moral o jurídica, a ésta se le impondrá la consecuencia jurídica consistente en la prohibición de realizar determinados negocios u operaciones hasta por 5 años, multa hasta por quinientos días multa, independientemente de la responsabilidad en que hubieren incurrido las personas físicas por el delito cometido.

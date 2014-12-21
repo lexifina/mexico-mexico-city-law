@@ -1,4 +1,4 @@
-LEY DE PROTECCION DE DATOS PERSONALES PARA EL DISTRITO FEDERAL
+LEY DE PROTECCIÓN DE DATOS PERSONALES PARA EL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el viernes 3 de octubre de 2008.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 DECRETO POR EL QUE SE EXPIDE LA LEY DE PROTECCIÓN DE DATOS PERSONALES PARA EL DISTRITO FEDERAL.
