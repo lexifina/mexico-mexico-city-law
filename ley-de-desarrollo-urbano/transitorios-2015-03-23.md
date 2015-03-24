@@ -1,0 +1,5 @@
+G.O. 23 DE MARZO DE 2015.
+PRIMERO.- Remítase al Jefe de Gobierno del Distrito Federal para su debida promulgación y publicación en la Gaceta Oficial del Distrito Federal y para su mayor difusión, en el Diario Oficial de la Federación.
+SEGUNDO.- El establecimiento en parques y oficinas públicas del Gobierno del Distrito Federal de bebederos o estaciones de recarga de agua potable, será de manera paulatina y programada, estará sujeto a la suficiencia presupuestal que al efecto se determine en el presupuesto de egresos correspondiente a cada uno de los ejercicios fiscales aprobados por la Asamblea Legislativa del Distrito Federal.
+TERCERO.- Los titulares y/o administradores de las plazas comerciales a que se refiere el artículo 10 de la Ley de Establecimientos Mercantiles del Distrito Federal, contarán con un plazo no mayor a 120 días para instalar y/o adecuar los bebederos o estaciones de agua potable en sus inmuebles.
+CUARTO.- La presente reforma entrará en vigor, al día siguiente de su publicación en la Gaceta Oficial del Distrito Federal.
