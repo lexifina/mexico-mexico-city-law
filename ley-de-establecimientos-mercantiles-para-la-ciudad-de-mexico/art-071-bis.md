@@ -1,0 +1,8 @@
+(ADICIONADO, G.O. 8 DE JUNIO DE 2015)
+Artículo 71 Bis.- El incumplimiento a las siguientes obligaciones normativas consideradas no graves en principio no será motivo de clausura:
+I. Cuando se detecten en verificación modificaciones a las condiciones originalmente manifestadas en el Aviso o Solicitud de Permiso de Funcionamiento del establecimiento mercantil de bajo impacto e impacto vecinal;
+II. Cuando se exceda con los enseres la superficie declarada en el aviso correspondiente;
+III. Cuando no se permita el acceso al establecimiento mercantil de impacto vecinal y de bajo impacto al personal autorizado por el Instituto para realizar las funciones de verificación;
+No obstante lo anterior, detectada alguna de las hipótesis durante la visita de verificación y que el visitado no haya subsanado durante el procedimiento de calificación, la autoridad al momento de emitir la resolución señalará un plazo de quince días hábiles para que el visitado subsane tales irregularidades realizando el apercibimiento respectivo, plazo que será contado a partir del día siguiente de la notificación de la resolución que ponga fin a la visita de verificación.
+Transcurrido este plazo y no subsanadas las irregularidades hechas del conocimiento del visitado, la autoridad emisora de la resolución procederá a hacer efectivo el apercibimiento y ordenará la clausura temporal del establecimiento de acuerdo con lo preceptuado en la propia resolución.
+Lo anterior se hará sin perjuicio y con tal independencia de las sanciones pecuniarias a que se haga acreedor el particular verificado y establecidas en el texto de la presente Ley.
