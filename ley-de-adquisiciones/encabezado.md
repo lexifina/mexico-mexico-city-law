@@ -1,5 +1,4 @@
 LEY DE ADQUISICIONES PARA EL DISTRITO FEDERAL
-N. DE E. DE CONFORMIDAD CON EL ARTÍCULO TRANSITORIO SEGUNDO DEL DECRETO DE REFORMAS PUBLICADO EN LA G.O. DE 10 DE JUNIO DE 2014, LAS PRESENTES REFORMAS ENTRARÁN EN VIGOR A LOS TREINTA DÍAS POSTERIORES A LOS DE SU PUBLICACIÓN.
 Ley publicada en la Gaceta Oficial del Distrito Federal, el lunes 28 de septiembre de 1998.
 Al margen un escudo que dice: Ciudad de México, Jefe de Gobierno del Distrito Federal.
 CUAUHTÉMOC CÁRDENAS SOLORZANO, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:

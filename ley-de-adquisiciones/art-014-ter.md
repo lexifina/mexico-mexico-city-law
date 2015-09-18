@@ -16,4 +16,7 @@ I. Domicilio fiscal y teléfonos para su localización, anexando copia fotostát
 II. Declaración anual del Impuesto Sobre la Renta correspondiente al ejercicio inmediato anterior, respecto de la fecha de solicitud de registro;
 III. Declaración escrita bajo protesta de decir verdad, de no encontrarse en alguno de los supuestos del artículo 39 de la Ley; y
 IV. Manifestación por escrito y bajo protesta de decir verdad, el nombre, denominación o razón social de aquellas personas físicas o morales de las que forman parte, o sus representantes, socios, empleados, apoderados, administradores o cualquier persona que se vincule con el licitante.
-La Oficialía podrá solicitar la documentación complementaria que juzgue conveniente, para comprobar la información que presenten los interesados, en el trámite de inscripción o modificación del registro de inscripción en el padrón.
+(REFORMADO, G.O. 17 DE SEPTIEMBRE DE 2015)
+La Oficialía podrá solicitar la documentación complementaria que juzgue conveniente, para comprobar la información que presenten los interesados, en el trámite de inscripción o modificación del registro de inscripción en el padrón. Para el caso de la inscripción en el padrón de Proveedores y determinar si es Salarialmente Responsable, el interesado podrá presentar constancias de Declaraciones Informativas Anuales de naturaleza fiscal, de movimiento de alta y/o de modificación de sueldo en materia de seguridad social, de pago del impuesto Sobre la Renta, entre otros.
+(ADICIONADO, G.O. 17 DE SEPTIEMBRE DE 2015)
+Además de la revisión documental, la autoridad podrá realizar las consultas que se consideren necesarias ante las instancias competentes para corroborar la información.
