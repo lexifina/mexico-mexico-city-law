@@ -1,4 +1,4 @@
-LEY DE LA INFRAESTRUCTURA FISICA EDUCATIVA DEL DISTRITO FEDERAL
+LEY DE LA INFRAESTRUCTURA FÍSICA EDUCATIVA DEL DISTRITO FEDERAL
 Ley publicada en la Gaceta Oficial del Distrito Federal, el martes 3 de noviembre de 2009.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 DECRETO POR EL QUE SE EXPIDE LA LEY DE LA INFRAESTRUCTURA FÍSICA EDUCATIVA DEL DISTRITO FEDERAL.
