@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 26 DE NOVIEMBRE DE 2015)
+Artículo 72 Bis. Las medidas de protección deberán ser registradas en el banco nacional de datos e información sobre casos y delitos de violencia cometida en contra de mujeres

@@ -1,0 +1,11 @@
+(ADICIONADO, G.O. 26 DE NOVIEMBRE DE 2015)
+Artículo 62 Bis. Las autoridades emisoras y ejecutoras de las medidas de protección deberán observar los siguientes principios:
+I. Principio de protección: considerar de manera primordial la obligación de salvaguardar la vida, integridad, libertad y seguridad de las personas;
+II. Principio de necesidad y proporcionalidad: las medidas de protección deben responder a las necesidades inmediatas y específicas de las víctimas, atendiendo a la situación de riesgo, peligro existente o a las consecuencias de los actos de violencia.
+III. Principio de confidencialidad: toda la información y actividad administrativa o jurisdiccional relacionada con el ámbito de protección de las personas, debe ser reservada para los fines de la investigación o del proceso respectivo.
+IV. Principio de oportunidad y eficacia: Las medidas deben ser otorgadas e implementadas de manera inmediata y durante el tiempo que garanticen su objetivo.
+V. Principio de accesibilidad: se deberá articular un procedimiento sencillo para garantizar la materialización de la protección inmediata a las víctimas de acuerdo a sus condiciones específicas, tomando en consideración el contexto de la violencia.
+VI. Principio de integralidad: El otorgamiento de la medida a favor de la victima deberá garantizar la salvaguarda de todos los derechos de las víctimas, considerando los distintos aspectos que se presentan en cada caso.
+VII. Principio de concentración: No se necesita una orden para cada medida, una sola orden de protección podrá concentrar el número de medidas necesarias para garantizar la seguridad y bienestar de la mujer en situación de violencia y en su caso de las víctimas indirectas.
+VIII. Principio pro persona: Para interpretar lo referente al otorgamiento de las medidas de protección, en caso de duda, con relación a la situación de violencia, se estará a lo más favorable para la víctima.
+IX. Principio de interés superior de la niñez: Cuando las decisiones que se adopten relacionadas con el trámite de medidas de protección, afecte de manera directa o indirecta a una niña, niño o adolescente se deberán evaluar y ponderar las posibles repercusiones para evitar efectos negativos en su esfera de derechos
