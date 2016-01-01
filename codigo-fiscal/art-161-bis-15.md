@@ -12,7 +12,10 @@ Años de antigüedadFactor de depreciación
 70.3
 80.2
 9 y siguientes0.1
-A la cantidad obtenida conforme al párrafo anterior, se le Aplicará la tarifa a que hace referencia el artículo 161 BIS 9 de este Capítulo.
+(REFORMADO, G.O. 30 DE DICIEMBRE DE 2015)
+A la cantidad obtenida conforme al párrafo anterior, se actualizará de conformidad con lo dispuesto en el artículo 161 BIS 1 de este Código; al resultado se le aplicará la tarifa a que hace referencia el artículo 161 BIS 9 de este Capítulo.
 Para efectos de la depreciación a que se refiere este artículo, los años de antigüedad se calcularán con base en el número de años transcurridos a partir del año modelo al que corresponda la motocicleta.
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2015)
+Tratándose de motocicletas eléctricas, el impuesto se pagará a la tasa de 0%.
 CAPITULO VII
 Del Impuesto por la Prestación de Servicios de Hospedaje
