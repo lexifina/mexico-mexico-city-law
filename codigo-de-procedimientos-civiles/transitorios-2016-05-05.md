@@ -1,0 +1,5 @@
+G.O. 5 DE MAYO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL ARTÍCULO CUARTO TRANSITORIO DEL CÓDIGO DE PROCEDIMIENTOS CIVILES PARA EL DISTRITO FEDERAL, CORRESPONDIENTE AL DECRETO PUBLICADO EL NUEVE DE JUNIO DE DOS MIL CATORCE EN LA GACETA OFICIAL DEL DISTRITO FEDERAL".]
+PRIMERO.- Publíquese en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
+TERCERO.- Se derogan todas las disposiciones contrarias a este decreto.
