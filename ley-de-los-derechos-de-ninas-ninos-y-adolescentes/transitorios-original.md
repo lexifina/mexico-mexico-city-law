@@ -18,3 +18,4 @@ QUE LAS PRESENTES COPIAS DE LA GACETA OFICIAL DEL DISTRITO FEDERAL, DÉCIMA OCTA
 SE EXPIDEN EN LA CIUDAD DE MÉXICO, A LOS TRECE DÍAS DEL MES DE ABRIL DEL AÑO DOS MIL DIECISEIS, PARA LOS EFECTOS LEGALES A QUE HAYA LUGAR.----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 DIRECTOR DE LEGISLACIÓN Y TRÁMITES INMOBILIARIOS
 LIC. FALVIO MARTÍNEZ ZAVALA
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
