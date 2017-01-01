@@ -42,4 +42,5 @@ IX. No será aplicable la fiscalización a través de medios electrónicos a:
 a) Los contribuyentes que sean propietarios de inmuebles cuyo valor catastral de los inmuebles se ubiquen en los rangos A al D a que se refiere la fracción I del artículo 130 de este Código.
 b) A los contribuyentes a que se hace referencia en los artículos 281 y 282 de este Código.
 c) A los adultos mayores, jubilados o pensionados por cesantía en edad avanzada sin ingresos fijos y escasos recursos que legalmente hayan aplicado cualquier tipo de beneficio fiscal.
-d) A las personas con capacidades diferentes registradas ante el Instituto para la Integración al Desarrollo de las Personas con Discapacidad del Distrito Federal.
+(REFORMADO, G.O. 29 DE DICIEMBRE DE 2016)
+d) A las personas con capacidades diferentes registradas ante el Instituto para la Integración al Desarrollo de las Personas con Discapacidad de la Ciudad de México.

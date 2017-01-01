@@ -20,8 +20,8 @@ I. El valor total del automóvil se multiplicará por el factor de depreciación
 II. La cantidad obtenida conforme a la fracción anterior se actualizará de conformidad con el artículo 161 BIS 1 de este Código; el resultado obtenido se multiplicará por 0.245%.
 Para los efectos de este artículo, los años de antigüedad se calcularán con base al número de años transcurridos a partir del año modelo que corresponda al vehículo.
 Tratándose de automóviles eléctricos a que se refiere este artículo, así como de aquellos eléctricos, que además cuenten con motor de combustión interna o con motor accionado por hidrógeno, el impuesto se pagará a la tasa de 0%.
-(ADICIONADO, G.O. 31 DE DICIEMBRE DE 2012)
-Cuando se tramite el alta en el Distrito Federal de los vehículo (sic) previstos en las Secciones Cuarta y Quinta matriculados en otra Entidad Federativa o por la Federación, que se realice después del primer mes del año, se cubrirá el Impuesto sobre Tenencia o Uso de Vehículos, aplicando el factor correspondiente, de acuerdo a la siguiente:
+(REFORMADO PRIMER PÁRRAFO, G.O. 29 DE DICIEMBRE DE 2016)
+Cuando se tramite el alta en la Ciudad de México de los vehículos previstos en las Secciones Cuarta y Quinta matriculados en otra Entidad Federativa o por la Federación, que se realice después del primer mes del año, se cubrirá el Impuesto sobre Tenencia o Uso de Vehículos, aplicando el factor correspondiente, de acuerdo a la siguiente:
 TABLA:
 MesFactor aplicable al
 impuesto causado

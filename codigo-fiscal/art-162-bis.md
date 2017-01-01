@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 29 DE DICIEMBRE DE 2016)
+ARTÍCULO 162 BIS.- Las personas físicas o morales que en su carácter de intermediarias, promotoras o facilitadoras intervengan en el cobro de las contraprestaciones por servicios de hospedaje y en caso de que se cubra a través de ellas lo correspondiente al Impuesto por la Prestación de Servicios de Hospedaje, deberán inscribirse al padrón del impuesto correspondiente en su carácter de intermediario, promotor o facilitador a efecto de coadyuvar en el cumplimiento de lo establecido en el artículo 164 de este Código.

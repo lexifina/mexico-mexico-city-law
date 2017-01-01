@@ -1,4 +1,4 @@
 (ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
 ARTICULO 161 BIS.- El impuesto se pagará en las oficinas recaudadoras o en las auxiliares autorizadas para tal efecto por la Secretaría, previamente a la autorización del registro, alta del vehículo o se expida el permiso provisional para circulación en traslado, de dicho vehículo.
-(REFORMADO, G.O. 30 DE DICIEMBRE DE 2015)
-Los vehículos que circulen con placas de transporte público federal, así como las aeronaves, embarcaciones, veleros, esquí acuático motorizado, motocicleta acuática y tabla de oleaje con motor, cuyo domicilio fiscal que el contribuyente tenga registrado ante la Secretaría de Hacienda y Crédito Público se encuentre en el Distrito Federal realizarán el pago del impuesto en cualquiera de los lugares a que hace referencia el párrafo anterior.
+(REFORMADO, G.O. 29 DE DICIEMBRE DE 2016)
+Los vehículos que circulen con placas de transporte público federal, así como las aeronaves, embarcaciones, veleros, esquí acuático motorizado, motocicleta acuática y tabla de oleaje con motor, cuyo domicilio fiscal que el contribuyente tenga registrado ante la Secretaría de Hacienda y Crédito Público se encuentre en la Ciudad de México realizarán el pago del impuesto en cualquiera de los lugares a que hace referencia el párrafo anterior.

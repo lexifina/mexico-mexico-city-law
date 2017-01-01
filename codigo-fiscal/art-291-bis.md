@@ -1,3 +1,4 @@
+(DEROGADO ÚLTIMO PÁRRAFO, G.O. 29 DE DICIEMBRE DE 2016)
 (ADICIONADO, G. O. 31 DE DICIEMBRE DE 2013)
 ARTICULO 291 BIS.- Las personas que inviertan de su propio patrimonio para llevar a cabo el mantenimiento de áreas verdes con o sin jardinería, así como la reconstrucción de banquetas del o los inmuebles de los cuales son propietarios, de acuerdo a los parámetros constructivos emitidos por la Secretaría de Obras y Servicios, tendrán derecho a una reducción del Impuesto Predial en el presente ejercicio, en los siguientes términos:
 I. El equivalente al costo del mantenimiento del área verde anualizado, ya sea con jardinería o sin jardinería.
