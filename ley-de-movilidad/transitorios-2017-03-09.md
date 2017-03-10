@@ -1,0 +1,8 @@
+G.O. 9 DE MARZO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL DISTRITO FEDERAL Y DE LA LEY DE MOVILIDAD DEL DISTRITO FEDERAL".]
+PRIMERO.- Publíquese el presente Decreto en la Gaceta Oficial de la Ciudad de México, y para su mayor difusión publíquese en el Diario Oficial de la Federación.
+SEGUNDO.- El presente Decreto entrara en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO.- A partir de la entrada en vigor del presente decreto, todos los permisos, concesiones, convenios y demás actos celebrados entre la Secretaría de Desarrollo Urbano y Vivienda del Distrito Federal o la Autoridad del Espacio Público referente al (sic) sistemas de control, supervisión y cobro de estacionamiento de vehículos en la vía pública (parquímetros) y cualquier particular o tercero, subsistirán hasta en tanto se cumpla su fin u objetivo; respecto de los nuevos permisos, concesiones y demás actos que se celebren en dicha materia a partir de la entrada en vigor del presente decreto, surtirán sus efectos en los términos que dispone la reforma en análisis.
+CUARTO.- Se tienen por derogadas todas las disposiciones que contravengan el presente decreto.
+QUINTO.- El Jefe de Gobierno contará con treinta días para ajustar las disposiciones reglamentarias que contravengan el presente decreto.
+SEXTO.- El Jefe de Gobierno contará con treinta días para girar sus instrucciones a quien corresponda, para ajustar dentro de este periodo el programa "sistemas de control, supervisión y cobro de estacionamiento de vehículos en la vía pública" para no contravenir el presente decreto.
