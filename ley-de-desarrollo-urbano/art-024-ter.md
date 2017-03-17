@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 16 DE MARZO DE 2017)
+Artículo 24 Ter. La Comisión de Evaluación de Asentamientos Humanos Irregulares sesionará previa convocatoria del Jefe Delegacional competente por territorio, quien la formulará de oficio o por denuncia de cualquier ciudadano, y la notificará a cada uno de sus integrantes.
+Para suplir la ausencia de los integrantes de la Comisión que tengan el carácter de servidores públicos, se requerirá oficio de designación del titular de la Dependencia u Órgano de que se trate, y copia certificada del nombramiento de Subsecretario, Coordinador General, Director General o equivalentes.
+Las demás disposiciones internas de la Comisión, serán establecidas en el Reglamento de la Ley, sin que sea obstáculo para la instalación y funcionamiento de la Comisión, la falta de expedición de ese Reglamento.
