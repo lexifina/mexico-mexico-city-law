@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 23 DE MARZO DE 2017)
+Artículo 94 Ter. Para la Construcción, ampliación, reparación o modificación de una obra, de las previstas en el artículo 53 del Reglamento de Construcciones para el Distrito Federal, y previamente a la solicitud de tramitación de permisos, licencias, autorizaciones, registros de manifestaciones, y demás actos administrativos referentes a cambios de uso de suelo, los solicitantes deberán agotar el procedimiento de publicitación vecinal en los términos que señala esta Ley.
+No procederá la tramitación de los actos administrativos mencionados anteriormente, cuando el predio o inmueble se localice en suelo de conservación y no se haya agotado el procedimiento de publicitación vecinal.
