@@ -1,0 +1,11 @@
+LEY DE VIVIENDA PARA LA CIUDAD DE MÉXICO
+Ley publicada en la Gaceta Oficial de la Ciudad de México, el jueves 23 de marzo de 2017.
+(Al margen superior un escudo que dice: CDMX.- CIUDAD DE MÉXICO)
+DECRETO QUE CONTIENE LAS OBSERVACIONES RESPECTO DEL DIVERSO POR EL QUE SE EXPIDE LA LEY DE VIVIENDA PARA LA CIUDAD DE MÉXICO
+MIGUEL ÁNGEL MANCERA ESPINOSA, Jefe de Gobierno de la Ciudad de México, a sus habitantes sabed:
+Que la H. Asamblea Legislativa del Distrito Federal, VII Legislatura se ha servido dirigirme el siguiente
+D E C R E T O
+ASAMBLEA LEGISLATIVA DEL DISTRITO FEDERAL
+VII LEGISLATURA.
+D E C R E T A
+DECRETO QUE CONTIENE LAS OBSERVACIONES RESPECTO DEL DIVERSO POR EL QUE SE EXPIDE LA LEY DE VIVIENDA PARA LA CIUDAD DE MÉXICO
