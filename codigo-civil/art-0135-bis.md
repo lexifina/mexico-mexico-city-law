@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, G.O. 5 DE FEBRERO DE 2015)
 ARTICULO 135 BIS.- Pueden pedir el levantamiento de una nueva acta de nacimiento para el reconocimiento de la identidad de género, previa la anotación correspondiente en su acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género.
 El reconocimiento respectivo se llevará a cabo ante las instancias y las autoridades correspondientes del Registro Civil del Distrito Federal cumpliendo todas las formalidades que exige el Reglamento del Registro Civil del Distrito Federal.

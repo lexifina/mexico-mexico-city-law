@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.O. 18 DE AGOSTO DE 2011) (REUBICADO [N. DE E. ANTES ARTÍCULO 323 SÉPTIMUS], G.O. 9 DE MAYO DE 2014)
 ARTICULO 323 OCTAVUS.- En el Registro de Deudores Alimentarios Morosos se harán las inscripciones a que se refiere el artículo 309 del presente Código. Dicho registro contendrá:
 (REFORMADA, G.O. 28 DE JULIO DE 2014)

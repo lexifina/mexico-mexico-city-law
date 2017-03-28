@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 5 DE FEBRERO DE 2015)
 ARTÍCULO 135 QUITUS (SIC).- Existirá un consejo integrado por la Secretaría de Desarrollo Social, la Secretaría de Gobierno, la Consejería Jurídica y de Servicios Legales, todas del Distrito Federal. El Consejo para Prevenir y Eliminar la Discriminación de la Ciudad de México, y el Mecanismo de Seguimiento y Evaluación del Programa de los Derechos Humanos del Distrito Federal.
 El Consejo será el encargado de garantizar los derechos humanos en el desahogo del procedimiento administrativo de reconocimiento de identidad de género presidido por la Consejería Jurídica y de Servicios Legales del Distrito Federal y sesionará a convocatoria de esta misma.

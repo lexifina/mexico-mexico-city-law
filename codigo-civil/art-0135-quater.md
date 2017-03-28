@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 5 DE FEBRERO DE 2015)
 ARTÍCULO 135 QUATER.- Además de lo señalado en el artículo anterior, para el levantamiento del acta correspondiente, se deberá cumplir con los siguientes requisitos:
 I. Ser de nacionalidad mexicana;

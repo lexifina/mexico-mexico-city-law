@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 27 DE MARZO DE 2017)
+ARTICULO 2,939 OCTIES.- La extinción de la hipoteca inversa tiene lugar cuando fallezca la persona adulta mayor beneficiada, así como su cónyuge, concubina o concubinario nombrado como beneficiario, se extinga el capital pactado y los herederos de la persona adulta mayor decidan no reembolsar los débitos vencidos, con sus intereses, en este supuesto la entidad financiera podrá obtener el recobro hasta donde alcance el bien inmueble hipotecado, pudiendo solicitar su adjudicación o su venta.

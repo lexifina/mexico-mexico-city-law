@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 5 DE FEBRERO DE 2015)
 ARTICULO 135 TER.- Para realizar el levantamiento de una nueva acta de nacimiento para el reconocimiento de identidad de género, las personas interesadas deberán presentar:
 I. Solicitud debidamente requisitada;

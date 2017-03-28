@@ -4,7 +4,6 @@ La conducta descrita en el párrafo anterior, se denomina alienación parental c
 En el supuesto de que el menor presente un grado de alienación parental severo, en ningún caso, permanecerá bajo el cuidado del progenitor alienador o de la familia de éste, se suspenderá todo contacto con el padre alienador y el menor será sometido al tratamiento que indique el especialista que haya diagnosticado dicho trastorno.
 A fin de asegurar el bienestar del menor, y en caso de que, por su edad, resulte imposible que viva con el otro progenitor, el departamento de psicología del Tribunal Superior de Justicia del Distrito Federal, evaluando a los parientes más cercanos del niño, determinará qué persona quedará encargada de su cuidado; mientras recibe el tratamiento respectivo que haga posible la convivencia con el progenitor no alienador.
 El tratamiento para el niño alienado será llevado a cabo en el Departamento de Alienación Parental del Servicio Médico Forense del Tribunal Superior de Justicia del Distrito Federal.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE CAPÍTULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.O. 18 DE AGOSTO DE 2011)
 CAPITULO IV
 Del Registro de Deudores Alimentarios Morosos
