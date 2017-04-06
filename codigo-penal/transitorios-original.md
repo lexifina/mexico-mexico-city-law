@@ -11,4 +11,4 @@ QUINTO: Se abroga el Código Penal de 1931, sus reformas y demás leyes que se o
 Recinto Legislativo, a 03 de julio de 2002.
 POR LA MESA DIRECTIVA.- DIP. HIRAM ESCUDERO ÁLVAREZ, PRESIDENTE.- SECRETARIA, DIP. LORENA RÍOS MARTÍNEZ.- SECRETARIA, DIP. ALICIA VIRGINIA TÉLLEZ SÁNCHEZ.- (Firmas).
 En cumplimiento a lo dispuesto por los artículos 122, apartado C, Base Segunda, fracción II, inciso b), de la Constitución Política de los Estados Unidos Mexicanos; 48, 49 y 67 fracción II, del Estatuto de Gobierno del Distrito Federal, y para su debida publicación y observancia, expido el presente Decreto Promulgatorio, en la Ciudad de México, a los once días del mes de julio del dos mil dos.- EL JEFE DE GOBIERNO DEL DISTRITO FEDERAL.- LIC. ANDRÉS MANUEL LÓPEZ OBRADOR.- FIRMA.- EL SECRETARIO DE GOBIERNO, JOSÉ AGUSTÍN ORTÍZ PINCHETTI.- FIRMA.
-N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.]

@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2011)
 ARTÍCULO 344 BIS. Se le impondrán de 6 meses a 5 años de prisión y de 500 a 2,000 días multa, a quien extraiga suelo o cubierta vegetal, piedra o tierra natural, por un volumen igual o mayor a dos metros cúbicos, de:
 (ADICIONADA, G.O. 13 DE ENERO DE 2004)

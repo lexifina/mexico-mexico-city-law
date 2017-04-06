@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 72 BIS (Criterios para la individualización de las penas y medidas de seguridad para las personas morales o jurídicas). El Juez, para la imposición de las penas y medidas de seguridad previstas en el artículo 32, 38, 68 y 69 de este Código, tomará en cuenta:
 I.- La naturaleza de la acción u omisión y los medios empleados para ejecutarla;

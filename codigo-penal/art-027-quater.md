@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 27 QUÁTER No excluirá ni modificará la responsabilidad penal de las personas morales o jurídicas:
 I.- Que en las personas físicas mencionadas en el artículo 27 bis, concurra alguna de las siguientes circunstancias:

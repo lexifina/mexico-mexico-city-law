@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 38 BIS (Días de multa para la persona moral o jurídica). La multa consiste en el pago de una cantidad de dinero al Gobierno del Distrito Federal fijada por días multa. Los mínimos y máximos atenderán a cada delito en particular.
 El día multa equivale a la percepción neta diaria de la persona moral o jurídica responsable de la comisión del delito, al momento de cometer el delito.

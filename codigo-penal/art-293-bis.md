@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 293 BIS Se impondrá de cuatro a dieciséis años de prisión y de doscientos a ochocientos días multa, al servidor público que declare la extinción de la acción penal, cuando el imputado, acusado o procesado pertenezca a un pueblo o comunidad indígena, sin que considere respecto a la víctima u ofendido del delito:
 I.- La perspectiva de género;

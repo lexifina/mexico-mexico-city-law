@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 50 BIS Los montos de las garantías económicas relacionadas con una medida cautelar distinta a la prisión preventiva, se impondrán conforme a la legislación de procedimientos penales aplicable al Distrito Federal, y se aplicarán a los Fondos de Apoyo a la Procuración y Administración, en la medida y proporción que éste Código establece, la Ley del Fondo de Apoyo a la Administración de Justicia en el Distrito Federal, la Ley del Fondo de Apoyo a la Procuración de Justicia en el Distrito Federal, y los demás ordenamientos jurídicos aplicables.

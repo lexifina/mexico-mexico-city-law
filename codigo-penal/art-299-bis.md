@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 299 BIS Se impondrán de cuatro a dieciséis años de prisión y de cien a seiscientos días multa, al servidor público que no imponga una medida cautelar cuando se encuentre en peligro la víctima u ofendido del delito de violencia familiar, delitos contra la mujer, lesiones o se trate de la protección de niñas, niños, integrantes de pueblos o comunidades indígenas, discapacitados o adultos mayores.

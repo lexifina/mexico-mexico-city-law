@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 ARTÍCULO 27 BIS (Responsabilidad Penal de una Persona Moral o Jurídica).-
 I.- Las personas morales o jurídicas serán responsables penalmente de los delitos dolosos o culposos, y en su caso, de la tentativa de los primeros, todos previstos en este Código, y en las leyes especiales del fuero común, cuando:
