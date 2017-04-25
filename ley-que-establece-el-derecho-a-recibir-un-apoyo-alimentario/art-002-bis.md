@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 24 DE ABRIL DE 2017)
+ARTÍCULO 2 BIS.- Para efectos de esta Ley, se considera también madre sola de escasos recursos a la familiar en línea recta ascendiente en segundo grado que por extravío o por el deceso de la madre biológica, quede a cargo, de manera definitiva y permanente, de la crianza y tutela de sus nietos. Siempre y cuando se encuentre dentro de los supuestos establecidos en el artículo anterior.
