@@ -1,0 +1,11 @@
+(ADICIONADO, G.O. 25 DE ABRIL DE 2017)
+Artículo 47 Octies. NORMA PARA IMPULSAR Y FACILITAR LA CONSTRUCCIÓN DE VIVIENDA PARA LOS TRABAJADORES DERECHOHABIENTES DE LOS ORGANISMOS NACIONALES DE VIVIENDA EN SUELO URBANO (PARTE SÉPTIMA). Cuando la persona responsable de la construcción incumpla con la superficie o los niveles permitidos por la Norma para Impulsar y Facilitar la Construcción de Vivienda para los Trabajadores Derechohabientes de los Organismos Nacionales de Vivienda en Suelo Urbano, y la resolución sancionatoria sea firme, se observarán las siguientes reglas:
+I. El infractor será responsable por el incumplimiento de la obligación de demoler, la cual no terminará en tanto no se ejecute;
+II. La Secretaría volverá a ordenar al infractor que la demolición la ejecute dentro de los 15 días naturales siguientes a la notificación personal del nuevo mandamiento, el cual deberá ser por escrito, fundado y motivado, y
+III. Si el infractor no practicare la demolición ordenada en los términos de la fracción anterior, entonces la Secretaría ordenará ejecutar la demolición correspondiente, y su costo será determinado por la Tesorería del Distrito Federal, a su cargo, como crédito fiscal en favor del erario, haciéndolo efectivo mediante el procedimiento administrativo de ejecución, de conformidad con lo dispuesto por el Código Fiscal del Distrito Federal.
+En términos de lo antes previsto serán señalados como responsables: el propietario del predio, el poseedor del mismo, el Director Responsable de Obra, el Corresponsable en Seguridad Estructural, El Corresponsable en Diseño Urbano y Arquitectónico, el Corresponsable en Instalaciones, y cualquier otra persona que haya construido, indistintamente.
+La Secretaría independientemente de las sanciones administrativas que resulten procedentes y se impongan por las violaciones a los preceptos de esta Ley, derivadas de la construcción de una edificación que incumpla con lo establecido por la Norma para Impulsar y Facilitar la Construcción de Vivienda para los Trabajadores Derechohabientes de los Organismos de Vivienda, deberá también presentar la denuncia penal correspondiente y solicitar al Registro Público de la Propiedad y de Comercio la custodia de los folios reales del inmueble.
+Título Cuarto
+Del ordenamiento territorial
+Capítulo Primero
+Disposiciones generales
