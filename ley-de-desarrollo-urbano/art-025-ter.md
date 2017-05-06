@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 5 DE MAYO DE 2017)
+Artículo 25 Ter. La Comisión de Desarrollo e Infraestructura Urbana elaborará un dictamen con proyecto de acuerdo que contenga una lista de siete candidatos a integrar el Consejo Consultivo de Desarrollo Urbano de la Ciudad de México, incluido el Presidente, previa convocatoria pública en la que se incluya la difusión de los requisitos que, para ser Consejeros designados por la Asamblea, establece la presente Ley.
