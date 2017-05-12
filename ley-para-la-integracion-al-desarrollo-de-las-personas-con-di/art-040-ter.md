@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 11 DE MAYO DE 2017)
+Artículo 40 Ter.- El Instituto en coordinación con el DIF-CDMX, facilitará el ejercicio pleno de la capacidad jurídica de las personas con discapacidad, de conformidad con la normatividad aplicable, debiendo para ello realizar acciones en ese sentido, impulsando la creación y modificación del marco jurídico local para garantizar el derecho de acceso a la justicia y al ejercicio pleno de la capacidad jurídica de todas las personas con discapacidad.

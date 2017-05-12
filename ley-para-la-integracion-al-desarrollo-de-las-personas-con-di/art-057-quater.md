@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 11 DE MAYO DE 2017)
+Artículo 57 Quater.- Para la integración del Registro se atenderá lo dispuesto en la Ley de Transparencia, Acceso a la Información Pública y Rendición de Cuentas de la Ciudad de México y en la Ley de Protección de Datos Personales, ambas del ámbito local, por cuanto a la protección de datos, a fin de asegurar la confidencialidad y el respeto de la privacidad de las personas con discapacidad.
+Todas las personas que integren el Registro, contarán con una fotocredencial única, la cual contendrá la información de identificación como persona con discapacidad, que les servirá para poder realizar todos los trámites y servicios que ofrece el Gobierno de la Ciudad de México.

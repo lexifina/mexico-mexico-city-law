@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 11 DE MAYO DE 2017)
+Artículo 37 Quater.- El Instituto y el DIF-CDMX proporcionarán a la Secretaría de Turismo de la Ciudad de México, la información necesaria para que los productos y servicios turísticos ofrecidos en el mercado, busquen ajustarse a las necesidades específicas de las personas con discapacidad, debiéndose realizar las modificaciones correspondientes para brindarlos en condiciones adecuadas.
