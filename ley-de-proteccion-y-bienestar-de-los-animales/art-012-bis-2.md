@@ -1,10 +1,16 @@
-(ADICIONADO, G.O. 13 DE OCTUBRE DE 2006)
-Artículo 12 Bis 2. Los Centros de Control animal deberán contar con la infraestructura necesaria para brindar a los animales que resguarden una estancia digna, segura y saludable, por lo que deberán:
+(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2017)
+Artículo 12 Bis 2. Los Centros de Atención Canina y Felina, las Clínicas Veterinarias en las Demarcaciones Territoriales y análogos deberán contar con la infraestructura necesaria para brindar a los animales que resguarden una estancia digna, segura y saludable, por lo que deberán:
+(ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 I. Tener un médico veterinario zootecnista debidamente capacitado como responsable del Centro;
+(ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 II. Dar capacitación permanente a su personal a fin de asegurar un manejo adecuado;
+(ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 III. Proveer alimento y agua suficiente en todo momento a los animales resguardados;
+(ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 IV. Tener un técnico capacitado en sacrificio de acuerdo a las normas vigentes para tal efecto;
+(ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 V. Emitir una constancia del estado general del animal tanto a su ingreso como a su salida; y
+(ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 VI. Separar y atender a los animales que estén lastimados, heridos o presenten signos de enfermedad infecto contagiosa;
 (ADICIONADA, G.O. 28 DE NOVIEMBRE DE 2008)
 VII. Disponer de vehículos para la captura y traslado de animales abandonados;

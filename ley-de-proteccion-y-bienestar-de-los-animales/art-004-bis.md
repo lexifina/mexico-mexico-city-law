@@ -1,7 +1,10 @@
-(ADICIONADO, G.O. 28 DE NOVIEMBRE DE 2008)
-Artículo 4° Bis. Son obligaciones de los habitantes del Distrito Federal:
+(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2017)
+Artículo 4° Bis. Son obligaciones de los habitantes de la Ciudad de México:
+(ADICIONADA, G.O. 28 DE NOVIEMBRE DE 2008)
 I. Proteger a los animales, garantizar su bienestar, brindarles atención, asistencia, auxilio, buen trato, velar por su desarrollo natural, salud y evitarles el maltrato, la crueldad, el sufrimiento y la zoofilia.
-II.- Denunciar, ante las autoridades correspondientes, cualquier irregularidad o violación a la presente Ley, en las que incurran los particulares, profesionistas, asociaciones protectoras u autoridades.
+(ADICIONADA, G.O. 28 DE NOVIEMBRE DE 2008)
+II. Denunciar, ante las autoridades correspondientes, cualquier irregularidad o violación a la presente Ley, en las que incurran los particulares, profesionistas, asociaciones protectoras u autoridades.
+(ADICIONADA, G.O. 28 DE NOVIEMBRE DE 2008)
 III. Promover en todas las instancias públicas y privadas la cultura y la protección, atención y buen trato de los animales.
 (REFORMADA, G.O. 18 DE JUNIO DE 2012)
 IV. Promover la cultura, protección, atención y trato digno a los animales a través de los comités ciudadanos y de los consejos del pueblo electos;
