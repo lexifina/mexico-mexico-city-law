@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, G.O. 18 DE DICIEMBRE DE 2014)
 Artículo 61 bis. La Secretaría de Salud, desde la perspectiva de género, deberá:
 I.- A petición de la mujer interesada, practicar el examen que compruebe la existencia de su embarazo, así como su interrupción, en los casos relacionados con una solicitud de interrupción del mismo;
