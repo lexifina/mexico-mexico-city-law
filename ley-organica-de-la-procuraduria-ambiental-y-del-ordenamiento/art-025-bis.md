@@ -1,6 +1,10 @@
+(REFORMADO PRIMER PÁRRAFO, G.O. 20 DE JULIO DE 2017)
+Artículo 25 Bis. La Procuraduría determinará las acciones a seguir para atender en el menor tiempo posible con la menor cantidad de recursos, las denuncias ciudadanas que le presenten. En primer término, deberá evaluar la aplicación de mecanismos alternativos de solución de controversias.
 (ADICIONADO, G.O. 9 DE ENERO DE 2006)
-Artículo 25 Bis. La Procuraduría determinará las acciones a seguir para atender en el menor tiempo posible y con la menor cantidad de recursos, las denuncias ciudadanas que le presenten. En primer término, deberá evaluar la aplicación de mecanismos alternativos para la solución del conflicto de que se trate.
 En todo caso, la Procuraduría deberá informar al denunciante, dentro del plazo de los 30 días hábiles siguientes a la admisión de la denuncia, el resultado de las gestiones que hubiere realizado para su atención.
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
 Asimismo, la Procuraduría deberá hacer del conocimiento de los denunciantes y, en su caso, de las autoridades responsables o competentes, la admisión de la denuncia, utilizando en casos de urgencia cualquier medio de comunicación electrónico.
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
 En la misma comunicación se solicitará a dichas autoridades que rindan un informe sobre los actos, hechos u omisiones que se señalen en la denuncia, el cual deberá presentar dentro de un plazo máximo de diez días hábiles y por los medios que sean convenientes, de acuerdo con el caso. En las situaciones que a juicio de la Procuraduría se consideren urgentes, dicho plazo podrá ser reducido.
+(ADICIONADO, G.O. 9 DE ENERO DE 2006)
 La falta de rendición del informe o de la documentación que lo apoye, así como el retraso injustificado en su presentación, además de la responsabilidad respectiva, tendrá el efecto de que en relación con el trámite de la denuncia se tengan por ciertos los hechos materia de la misma, salvo prueba en contrario.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 20 DE JULIO DE 2017)
+Artículo 34 Bis 4. La Procuraduría podrá aplicar mecanismos alternativos de solución de controversias, entre los que se encuentran la mediación, la conciliación y el arbitraje, para garantizar la solución más favorable en la salvaguarda del derecho de los habitantes de la Ciudad de México a vivir en un medio ambiente sano y un ordenamiento territorial adecuados para su desarrollo, salud y bienestar.

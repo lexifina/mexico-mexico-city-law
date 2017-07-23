@@ -1,2 +1,2 @@
-(REFORMADO, G.O. 31 DE OCTUBRE DE 2008)
-Artículo 15 Bis 6. La Procuraduría, de acuerdo con el presupuesto que le corresponde, y de conformidad con las disposiciones jurídicas y administrativas aplicables, contará con las Coordinaciones, Direcciones, Subdirecciones, Jefaturas de Unidad Departamental, Verificadores, Inspectores, Investigadores, Peritos y demás servidores públicos que se requieren para el ejercicio de sus atribuciones.
+(REFORMADO, G.O. 20 DE JULIO DE 2017)
+Artículo 15 Bis 6. La Procuraduría, de acuerdo con el presupuesto que le corresponde, y de conformidad con las disposiciones jurídicas y administrativas aplicables, contará con las Coordinaciones, Direcciones, Subdirecciones, Jefaturas de Unidad Departamental y demás servidores públicos que se requieren para el ejercicio de sus atribuciones, mismas que se establecerán en el Reglamente (sic).

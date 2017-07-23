@@ -1,2 +1,2 @@
-(ADICIONADO, G.O. 9 DE ENERO DE 2006)
-Artículo 21 Bis. En todos los casos que se requiera, la Procuraduría levantará acta circunstanciada de sus actuaciones.
+(REFORMADO, G.O. 20 DE JULIO DE 2017)
+Artículo 21 Bis. En todas las diligencias y actuaciones llevadas a cabo durante la investigación, la Procuraduría levantará el acta circunstanciada correspondiente.

@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 20 DE JULIO DE 2017)
+Artículo 34 Bis 6. Los procedimientos de mediación y conciliación que lleve a cabo la Procuraduría se substanciarán conforme a lo establecido en esta Ley, el Reglamento y las demás disposiciones jurídicas aplicables.
+Para salvaguardar la confidencialidad de las partes, la Procuraduría podrá utilizar las tecnologías de la información y de comunicación que juzgue pertinentes, o bien, según sea el caso, promover el cumplimiento voluntario de las disposiciones jurídicas en materia ambiental y del ordenamiento territorial en los términos dispuestos en el Reglamento.
