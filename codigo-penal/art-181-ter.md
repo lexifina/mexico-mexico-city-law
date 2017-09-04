@@ -1,7 +1,7 @@
 (ADICIONADO, G.O. 26 DE SEPTIEMBRE DE 2007)
 ARTÍCULO 181 TER. Las penas previstas en el artículo anterior se aumentarán en dos terceras partes, cuando fueren cometidos:
 I. Con la intervención directa o inmediata de dos o más personas.
-II. Al que tenga respecto de la victima:
+II. Al que tenga respecto de la víctima:
 a) Parentesco de afinidad o consaguinidad (sic);
 b) Patria potestad, tutela o curatela y
 c) Guarda o custodia.
