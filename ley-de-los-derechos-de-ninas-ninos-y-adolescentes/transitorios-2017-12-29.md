@@ -1,0 +1,8 @@
+G.O. 29 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN DIVERSAS DISPOSICIONES DE LA LEY DE SALUD DEL DISTRITO FEDERAL Y DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente a su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- Publíquese en la Gaceta Oficial de la Ciudad de México para su conocimiento, y en el Diario Oficial de la Federación para su mayor difusión.
+TERCERO.- El Órgano Legislativo de la Ciudad de México considerará los recursos suficientes en el Presupuesto de Egresos de la Ciudad de México para el ejercicio 2018, para la aplicación del presente Decreto.
+CUARTO.- Los derechos, erogaciones y acciones previstas en este ordenamiento jurídico que impliquen erogaciones de carácter presupuestal, deberán realizarse de manera gradual y sujetarse a la capacidad financiera del Gobierno de la Ciudad de México, con el objeto de garantizar el equilibrio presupuestal.
+QUINTO.- La Secretaría de Salud de la Ciudad de México, continuará aplicando la vacuna tetravalente hasta que se descubra una vacuna que pueda cubrir más serotipos de Virus de Papiloma Humano, de conformidad con los avances médicos y científicos que pudieran surgir en un futuro y que estuvieran avalados por las instituciones competentes para dichos efectos.
+SEXTO.- El Jefe de Gobierno de la Ciudad de México contará con un plazo de 120 días hábiles contados a partir de la entrada en vigor de la presente Ley, para modificar al Reglamento de esta Ley acorde con las reformas del presente decreto.
