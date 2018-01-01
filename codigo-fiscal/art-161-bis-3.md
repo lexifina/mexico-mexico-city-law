@@ -2,8 +2,8 @@
 ARTICULO 161 BIS 3.- No se pagará el impuesto por la tenencia o uso de los siguientes vehículos:
 I. Los eléctricos utilizados para el transporte público de personas.
 II. Los importados temporalmente en los términos de la legislación aduanera.
-(REFORMADA, G.O. 29 DE DICIEMBRE DE 2016)
-III. Los vehículos propiedad de la Federación, Estados, Municipios y la Ciudad de México que sean utilizados para la prestación de los servicios públicos de rescate, patrullas, transportes de limpia, pipas de agua, servicios funerarios, y las ambulancias dependientes de cualquiera de esas entidades o de instituciones de beneficencia autorizadas por las leyes de la materia y los destinados a los cuerpos de bomberos.
+(REFORMADA, G.O. 31 DE DICIEMBRE DE 2017)
+III. Los vehículos propiedad de la Federación, las Entidades Federativas y Municipios que sean utilizados para la prestación de los servicios públicos de rescate, patrullas, transportes de limpia, pipas de agua, servicios funerarios, y las ambulancias dependientes de cualquiera de esas entidades o de instituciones de beneficencia autorizadas por las leyes de la materia y los destinados a los cuerpos de bomberos;
 IV. Los que tengan para su venta los fabricantes, las plantas ensambladoras, sus distribuidores y los comerciantes en el ramo de vehículos, siempre que carezcan de placas de circulación.
 V. Las embarcaciones dedicadas al transporte mercante o a la pesca comercial.
 VI. Los automóviles al servicio de misiones diplomáticas y consulares de carrera extranjeras y de sus agentes diplomáticos y consulares de carrera, excluyendo los cónsules generales honorarios, y vicecónsules honorarios, siempre que sea exclusivamente para uso oficial y exista reciprocidad.

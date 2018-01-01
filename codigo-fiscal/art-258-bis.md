@@ -1,10 +1,10 @@
 (ADICIONADO, G.O. 22 DE DICIEMBRE DE 2014)
 ARTICULO 258 BIS.- Por los servicios de evaluación y dictaminación del Estudio de Impacto de Movilidad que a continuación se indican, se cubrirán por concepto de derechos, las siguientes cuotas:
 I. Por el dictamen de estudio de impacto de movilidad que efectúe la autoridad competente, en las siguientes modalidades:
-(REFORMADO EN SU CUOTA, G.O. 29 DE DICIEMBRE DE 2016)
-a) Manifestación de impacto de movilidad general - $5,570.00
-(REFORMADO EN SU CUOTA, G.O. 29 DE DICIEMBRE DE 2016)
-b) Manifestación de impacto de movilidad específica - $8,481.50
+(REFORMADO EN SU CUOTA, G.O. 31 DE DICIEMBRE DE 2017)
+a). Manifestación de impacto de movilidad general $5,875.00
+(REFORMADO EN SU CUOTA, G.O. 31 DE DICIEMBRE DE 2017)
+b). Manifestación de impacto de movilidad específica $8,946.50
 CAPITULO X
 De los Derechos por el Uso o Aprovechamiento de Bienes del Dominio Público
 Sección Primera

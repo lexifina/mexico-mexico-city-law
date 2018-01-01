@@ -1,15 +1,16 @@
 (ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 161 BIS 9.- Tratándose de motocicletas nuevas, el impuesto se calculará aplicando al valor total de la Motocicleta, la siguiente:
-(REFORMADA EN SUS CUOTAS, G.O. 29 DE DICIEMBRE DE 2016)
+(REFORMADA EN SUS CUOTAS, G.O. 31 DE DICIEMBRE DE 2017)
 TARIFA:
-LímiteLímite Superior $Cuota Fija $Tasa para
-Inferior $aplicarse
+RangoLímiteLímiteCuotaTasa para
+InferiorSuperiorFijaaplicarse
 sobre el
-excedente
-del
-límite
-inferior %
-$0.01$275,299.00$0.003.1
-$275,299.01$378,601.00$8,259.509.1
-$378,601.01$508,881.50$17,246.0013.8
-$508,881.51En adelante$34,574.0017.5
+excedente del
+Límite inferior
+%
+A$0.01$290,385.50$0.003.0
+B$290,385.51$399,348.50$8,711.578.7
+C$399,348.51$536,768.00$18,191.3613.3
+D$536,768.01En adelante$36,468.1616.8
+(ADICIONADO, G.O. 31 DE DICIEMBRE DE 2017)
+El valor total del vehículo a que hace referencia el párrafo anterior, será el que se especifique en la factura sin que se consideren descuentos o cualquier disminución del valor real del vehículo de que se trate.

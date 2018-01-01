@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE DICIEMBRE DE 2017)
+ARTICULO 271 BIS.- Los poseedores de inmuebles que por causa de un fenómeno perturbador, fueran destruidos total o parcialmente y esto genere detrimento en el patrimonio del contribuyente, por ser determinado por la autoridad competente como inhabitable, tendrán derecho a una reducción equivalente al 100%, respecto de las contribuciones a que se refieren los artículos 126 y 172. Cuando se restituya el inmueble, se retomará el cobro del impuesto local, sin retroactividad del cobro por el tiempo donde aplicó.
