@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 26 DE FEBRERO DE 2018)
+Artículo 17 Bis.- Para cumplir con los objetivos de la presente ley, la Administración Pública fomentará el desarrollo e implementación de plataformas de dispositivos sensoriales conectados a redes inalámbricas de comunicaciones, que como herramienta tecnológica y a través de la georreferenciación sirvan para almacenar, procesar y generar contenidos de información útiles para implantar modelos de gestión eficientes, asequibles y rentables para la correcta atención de los servicios urbanos de la ciudad.
