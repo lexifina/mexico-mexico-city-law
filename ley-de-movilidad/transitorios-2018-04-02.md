@@ -1,0 +1,6 @@
+G.O. 2 DE ABRIL DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL ARTÍCULO 221 DE LA LEY DE MOVILIDAD DEL DISTRITO FEDERAL".]
+Primero.- Publíquese en la Gaceta Oficial de la Ciudad de México y para su mayor difusión en el Diario Oficial de la Federación.
+Segundo.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+Tercero.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+Cuarto.- Para tales efectos se deberá efectuar un programa enfocado en las zonas donde se requiera semáforo sonoro, para la sustitución de semáforos de forma paulatina, conforme a la disposición presupuestal disponibles en las partidas correspondientes.
