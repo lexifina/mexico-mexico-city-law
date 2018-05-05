@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, G.O. 26 DE ENERO DE 2009)
 Artículo 6o-bis.- Corresponde a la Secretaría de Protección Civil, siempre y cuando el espectáculo público sea mayor a quinientas personas:
 I. Vigilar el cumplimiento de las disposiciones en materia de Protección Civil;
