@@ -1,6 +1,6 @@
 [N. DE E. DE CONFORMIDAD CON EL ARTÍCULO PRIMERO TRANSITORIO, LA PRESENTE CONSTITUCIÓN ENTRARÁ EN VIGOR EL 17 DE SEPTIEMBRE DE 2018, EXCEPTO POR LO QUE HACE A LA MATERIA ELECTORAL, QUE ESTARÁ VIGENTE A PARTIR DEL DÍA SIGUIENTE AL DE SU PUBLICACIÓN; ASIMISMO, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS PARA CONOCER LOS DEMÁS SUPUESTOS QUE SE ESTABLECEN EN LA PROPIA CONSTITUCIÓN].
 CONSTITUCIÓN POLÍTICA DE LA CIUDAD DE MÉXICO
-Constitución publicada en la Edición Vespertina al Número 4 del Diario Oficial de la Federación, el domingo 5 de febrero de 2017.
+Constitución publicada en la Edición Vespertina al Número 4 del Diario Oficial de la Federación y en el Número 1 de la Gaceta Oficial de la Ciudad de México, el domingo 5 de febrero de 2017.
 Al margen un logotipo, que dice: Ciudad de México.
 MIGUEL ÁNGEL MANCERA ESPINOSA, Jefe de Gobierno de la Ciudad de México, a sus habitantes sabed:
 Que con fecha 29 de Enero (sic) 2016, se publicó en el Diario Oficial de la Federación, el Decreto por el que se Declaran Reformadas y Derogadas diversas disposiciones de la Constitución Política de los Estados Unidos Mexicanos, en materia de la Reforma Política de la Ciudad de México.
