@@ -1,0 +1,10 @@
+G.O. 1 DE NOVIEMBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN, DIVERSAS DISPOSICIONES DE LA LEY DE TRANSPARENCIA, ACCESO A LA INFORMACIÓN PÚBLICA Y RENDICIÓN DE CUENTAS DE LA CIUDAD DE MÉXICO Y DIVERSOS DE LA LEY ORGANICA DEL CONGRESO DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- Se derogan todas aquellas disposiciones que resulten contrarias al contenido del presente decreto.
+TERCERO.- La designación de las nuevas Personas Comisionadas del Instituto de Transparencia, Acceso a la Información Pública, Protección de Datos Personales de la Ciudad de México, será realizada a más tardar el treinta y uno de diciembre del año dos mil dieciocho.
+CUARTO.- La convocatoria para la designación de las nuevas Personas Comisionadas, deberá emitirse a más tardar el siete de noviembre del año dos mil dieciocho conforme a lo siguiente:
+I. Para asegurar la renovación escalonada con motivo de la conclusión de cargos de las Personas Comisionadas salientes designados conforme a la Ley anterior, el Congreso de la Ciudad de México especificará el periodo de ejercicio para cada Comisionado, tomando en consideración lo siguiente:
+a) Nombrará a dos Comisionados, uno de cada género, cuyo mandato comprenderá siete años; y
+b) Nombrará a dos Comisionadas o Comisionados, cuyo mandato comprenderá seis años y observando que en todo momento se garantice la equidad de género en el Pleno del Instituto.
+QUINTO.- De conformidad con el segundo párrafo del artículo Trigésimo Tercero de la Constitución de la Ciudad de México la actual comisionada en funciones del Instituto de Transparencia, Acceso a la Información Pública y Protección de datos Personales de la Ciudad de México, permanecerá en el cargo hasta el día 11 de noviembre del año 2020, fecha en que concluye el periodo para el que fue nombrada y en consecuencia, se elegirá una comisionada o un comisionado por el periodo de siete años.
