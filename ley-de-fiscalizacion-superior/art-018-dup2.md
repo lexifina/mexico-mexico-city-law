@@ -1,12 +1,13 @@
 (ADICIONADO, G.O. 24 DE JUNIO DE 2015)
 Artículo 18 Quarter.- El Contralor General de la Auditoría Superior tendrá las siguientes obligaciones y atribuciones:
-(REFORMADA, G.O. 8 DE MARZO DE 2017)
-I. Presentar al Pleno de la Asamblea, por conducto de la Comisión un informe semestral, dentro de los diez días naturales posteriores al periodo a informar, sobre el ejercicio del presupuesto de egresos de la Auditoría Superior.
+(REFORMADA, G.O. 27 DE NOVIEMBRE DE 2018)
+I. Presentar al Pleno del Congreso, por conducto de la Comisión un informe semestral, dentro de los diez días naturales posteriores al periodo a informar, sobre el ejercicio del presupuesto de egresos de la Auditoría Superior.
 II. Dar a conocer previamente al Auditor Superior las resoluciones que emita.
 III. Apoyar, asistir y asesorar a la Comisión, a la Auditoría Superior y a las Unidades Administrativas de ésta en el ámbito de su competencia;
 (REFORMADA, G.O. 1 DE SEPTIEMBRE DE 2017)
 IV. Conocer e investigar los actos u omisiones de las personas servidoras públicas adscritos a las unidades administrativas de la Auditoría Superior, que afectan la legalidad, honradez, lealtad, imparcialidad, confidencialidad y eficiencia que deben observar en el desempeño de su empleo, cargo o comisión; derivadas de quejas o denuncias presentadas por particulares, personas servidoras públicas o aquellas relacionadas con auditorías y en especial las relacionadas con los procedimientos de adquisición de bienes, servicios, arrendamientos y contratación de obra pública, así como determinar e imponer las sanciones que correspondan por faltas no graves en los términos de la legislación en materia de responsabilidades administrativas vigente en la Ciudad de México, las cuales se aplicarán a través del superior jerárquico de la persona servidoras (sic) pública sancionada; o bien, sustanciar y turnar conforme lo señale la legislación los hechos considerados como faltas graves, o hechos constitutivos de delitos. Asimismo, le corresponderá sustanciar y resolver los recursos de revocación que se promuevan en contra de las resoluciones en las que imponga sanciones a las personas servidoras públicas de la Auditoría Superior, en términos de las disposiciones jurídicas y administrativas aplicables, y demás que las leyes prevean que deba conocer;
-V. Verificar que las unidades administrativas que integran la Auditoría Superior cumplan con las obligaciones derivadas de las disposiciones en materia de planeación, programación, presupuestos, ingresos, financiamiento, inversión, deuda, fondos, valores y bienes del Distrito Federal en administración de la Auditoría Superior: así como las demás disposiciones relativas que dicten el Pleno de la Asamblea;
+(REFORMADA, G.O. 27 DE NOVIEMBRE DE 2018)
+V. Verificar que las unidades administrativas que integran la Auditoría Superior cumplan con las obligaciones derivadas de las disposiciones en materia de planeación, programación, presupuestos, ingresos, financiamiento, inversión, deuda, fondos, valores y bienes de la Ciudad de México en administración de la Auditoría Superior: así como las demás disposiciones relativas que dicte el Pleno del Congreso;
 VI. Auxiliar a las Unidades Administrativas de la Auditoría Superior, en la elaboración y revisión de los manuales de organización y procedimientos, promoviendo y supervisando su difusión, aplicación y actualización, con énfasis en el aspecto preventivo;
 (REFORMADA, G.O. 1 DE SEPTIEMBRE DE 2017)
 VII. Realizar dentro del ámbito de su competencia, todo tipo de auditorías a las unidades administrativas que integran la Auditoría Superior, con el objetivo de promover la eficiencia en sus operaciones;
@@ -21,7 +22,8 @@ XII. Supervisar la organización, sistema, métodos y procedimientos que rigen l
 XIII. Planear, Programar, organizar, coordinar y establecer el Sistema de Control y Evaluación de la Auditoría Superior en el ámbito administrativo, promoviendo permanentemente su actualización;
 XIV. Fiscalizar e Inspeccionar el ejercicio del gasto público y su congruencia con el Presupuesto de Egresos de la Auditoría Superior;
 XV. Participar en los actos de entrega recepción de la Auditoría Superior, en términos de la normatividad aplicable;
-XVI. Llevar el registro de los servidores públicos sancionados de las unidades administrativas de la Auditoría Superior en los términos de la Ley de Responsabilidades de Servidores Públicos vigente en el Distrito Federal;
+(REFORMADA, G.O. 27 DE NOVIEMBRE DE 2018)
+XVI. Llevar el registro de los servidores públicos sancionados de las unidades administrativas de la Auditoría Superior en los términos de la Ley de Responsabilidades Administrativas de la Ciudad de México;
 XVII. Llevar el registro patrimonial de los servidores públicos de la Auditoría Superior, y en su caso aplicar las sanciones que establezca la Ley de la materia;
 XVIII. Calificar los pliegos preventivos de responsabilidades que formulen las áreas contables de la Auditoría Superior, de conformidad con la normatividad aplicable en la materia;
 XIX. Representar en el ámbito de su competencia a la Auditoría Superior, ante las autoridades administrativas o judiciales, en todos los asuntos que se originen derivados del ejercicio de sus atribuciones legales;
