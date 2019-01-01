@@ -11,10 +11,10 @@ III. El equivalente al 50% del costo de reconstrucción de la banqueta basalto, 
 IV. El equivalente al 50% del costo de preservación o conservación anualizado, o rehabilitación de la fuente.
 (ADICIONADA, G.O. 31 DE DICIEMBRE DE 2017)
 V. El equivalente al 50% del costo del mantenimiento anualizado, o intervención para la implementación del "Cruce Seguro".
-(REFORMADO, G.O. 31 DE DICIEMBRE DE 2017)
-Los costos anteriores serán los determinados por metro cuadrado y tipo de mantenimiento o reconstrucción o preservación o conservación o rehabilitación o intervención por la Agencia de Gestión Urbana de la Ciudad de México.
-(REFORMADO, G.O. 31 DE DICIEMBRE DE 2017)
-Para que los contribuyentes obtengan la reducción contenida en este artículo, deberán presentar la Constancia emitida por la Agencia de Gestión Urbana de la Ciudad de México, con la que se acredite que se ha llevado a cabo el mantenimiento o reconstrucción o preservación o conservación o rehabilitación o intervención a que se refiere el párrafo anterior y el costo en el que se ha incurrido.
+(REFORMADO, G.O. 31 DE DICIEMBRE DE 2018)
+Los costos anteriores serán los determinados por metro cuadrado y tipo de mantenimiento o reconstrucción o preservación o conservación o rehabilitación o intervención por la Secretaría de Obras y Servicios.
+(REFORMADO, G.O. 31 DE DICIEMBRE DE 2018)
+Para que los contribuyentes obtengan la reducción contenida en este artículo, deberán presentar la Constancia emitida por la Secretaría de Obras y Servicios, con la que se acredite que se ha llevado a cabo el mantenimiento o reconstrucción o preservación o conservación o rehabilitación o intervención a que se refiere el párrafo anterior y el costo en el que se ha incurrido.
 (ADICIONADO, G. O. 31 DE DICIEMBRE DE 2013)
 La reducción se aplicará únicamente respecto de un inmueble por contribuyente y en ningún caso podrá ser mayor al costo de la obra.
 (ADICIONADO, G. O. 31 DE DICIEMBRE DE 2013)
