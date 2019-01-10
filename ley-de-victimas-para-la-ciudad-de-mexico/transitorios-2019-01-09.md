@@ -1,0 +1,4 @@
+G.O. 9 DE ENERO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN LOS INCISOS A), B) Y C), DE LA FRACCIÓN II, DEL ARTÍCULO 80 Y SE MODIFICA EL PRIMER PÁRRAFO DEL ARTÍCULO 115 DE LA LEY DE VÍCTIMAS PARA LA CIUDAD DE MÉXICO".]
+PRIMERO. El presente Decreto entrará en vigor al siguiente día de su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El Congreso de la Ciudad de México, a través de las Comisiones Unidas de Atención Especial a Victimas y la de Derechos Humanos, cuentan con un término de 15 días hábiles, para emitir la convocatoria para la elección de la terna, que será enviada a la o el Jefe de Gobierno, quien designará a la o el titular de la Comisión de Atención a Víctimas de la Ciudad de México, una vez que sea publicado en la Gaceta Oficial de la Ciudad de México el presente decreto.
