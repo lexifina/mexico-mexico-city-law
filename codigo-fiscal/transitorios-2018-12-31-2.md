@@ -349,6 +349,7 @@ La autoridad fiscal, mediante reglas de carácter general dará a conocer lo rel
 5. El valor catastral determinado mediante avalúo comprenderá la suma de los valores de suelo del inmueble, de sus construcciones, instalaciones especiales, elementos accesorios u obras complementarias, según sea el caso
 VALORES UNITARIOS DE SUELO Y DE LA CONSTRUCCIÓN
 [N. DE E. VÉASE TABLAS EN LA G.O. DE 31 DE DICIEMBRE DE 2018, PÁGINAS DE LA 115 A LA 243.]
+[N. DE E. VÉASE FE DE ERRATAS A LAS TABLAS EN LA G.O. DE 15 DE ENERO DE 2019, PÁGINAS DE 16 A LA 169.]
 ARTICULO VIGÉSIMO SEGUNDO.- Para los efectos de dar a conocer el nivel de desarrollo al que pertenecen las manzanas, para efectos de otorgar un subsidio a los usuarios de los derechos por el suministro de uso doméstico y domésticos y no domésticos simultáneamente (mixto) en la Ciudad de México a que se refiere el artículo 172 del Código, se presentan a continuación las siguientes tablas cuya aplicación se hará conforme a las definiciones y normas de aplicación que se indican:
 DEFINICIONES
 I. ÍNDICE DE DESARROLLO (ID). Construcción estadística que mediante variables de tipo socioeconómico derivadas de información oficial, permite diferenciar territorialmente a la población de la Ciudad de México de acuerdo a su nivel de desarrollo económico, agregando la información a nivel manzana. Las manzanas, en su conjunto, son clasificadas en cuatro distintos tipos: popular, bajo, medio, alto; de acuerdo al valor que para cada una de ellas arroja este índice.
