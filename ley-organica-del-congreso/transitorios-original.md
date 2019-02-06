@@ -61,7 +61,7 @@ VIGÉSIMO.- El Congreso tendrá un plazo de 180 días posteriores a la entrada e
 VIGÉSIMO PRIMERO.- El Congreso tendrá un plazo de 180 días posteriores a la entrada en vigor de esta Ley para expedir la Ley del Registro de la Memoria Oral Histórica de la Ciudad de México.
 VIGÉSIMO SEGUNDO.- De conformidad con el artículo 25 de la Constitución Política de la Ciudad de México y la fracción XVIII del artículo 13 de la Presente Ley, serán sometidas a consulta las disposiciones que sean aplicables a los pueblos y barrios y comunidades indígenas de la Ciudad de México.
 VIGÉSIMO TERCERO.- La Asamblea Legislativa del Distrito Federal a través de la Oficialía Mayor y la Coordinación de Servicios Parlamentarios deberá integrar y hacer entrega al Congreso de la Ciudad de México al inicio de sus funciones y por riguroso inventario de todo lo relativo a:
-l. Su patrimonio;
+I. Su patrimonio;
 II. Recursos materiales que comprende: los de inventario, provisión y control de bienes muebles, materiales de oficina y papelería y adquisiciones de recursos materiales;
 III. Servicios generales y de informática: Tales como el mantenimiento de bienes inmuebles, alimentación, servicios generales, apoyo técnico para adquisiciones de bienes informáticos, instalación y mantenimiento del equipo de cómputo y asesoría y planificación informática;
 IV. Jurídicos que comprenden: asesorías y atención de asuntos legales del Congreso;
