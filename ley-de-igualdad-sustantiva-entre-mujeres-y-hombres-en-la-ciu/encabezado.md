@@ -1,4 +1,4 @@
-LEY DE IGUALDAD SUSTANTIVA ENTRE MUJERES Y HOMBRES EN EL DISTRITO FEDERAL
+LEY DE IGUALDAD SUSTANTIVA ENTRE MUJERES Y HOMBRES EN LA CIUDAD DE MÉXICO
 Ley publicada en la Gaceta Oficial del Distrito Federal, el martes 15 de mayo de 2007.
 (Al margen superior un sello que dice: Ciudad de México.- Capital en Movimiento)
 MARCELO LUIS EBRARD CASAUBON, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:

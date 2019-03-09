@@ -1,8 +1,14 @@
-(ADICIONADO, G.O. 10 DE MAYO DE 2013)
-Artículo 9 Bis.- Corresponde a los Jefes Delegacionales:
-I. Implementar las acciones, políticas, programas, proyectos e instrumentos que garanticen la adopción de acciones afirmativas en la (sic) áreas delegacionales;
-II. En coordinación con el Jefe de Gobierno del Distrito Federal, Implementar y fortalecer los mecanismos institucionales de promoción y cumplimiento de la política de igualdad sustantiva en el Distrito Federal, mediante la aplicación del principio de transversalidad, a través del Instituto de las Mujeres del Distrito Federal;
-III. Evaluar la participación equilibrada entre mujeres y hombres, y procurar la participación y representación del 50% en cargos públicos de Directora o Director General; Directora o Director Ejecutivo y Directora o Director de Área, de los órganos político-administrativos, entre ambos sexos;
-Establecer vínculos de colaboración permanente con organismos públicos, privados y sociales, para la efectiva aplicación de la presente ley;
-IV. Suscribir los convenios necesarios para el cumplimiento de la presente ley, y
-V. Los demás que esta Ley y otros ordenamientos aplicables le confieren.
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.O. 8 DE MARZO DE 2019)
+Artículo 9 Bis.- Corresponde a las personas titulares de las Alcaldías:
+(REFORMADA, G.O. 8 DE MARZO DE 2019)
+I. Implementar las acciones, políticas, programas, proyectos e instrumentos que garanticen la adopción de acciones afirmativas en las unidades administrativas de las alcaldías;
+(REFORMADA, G.O. 8 DE MARZO DE 2019)
+II. En coordinación con la persona Titular de la Jefatura de Gobierno de la Ciudad de México, implementar y fortalecer los mecanismos institucionales de promoción y cumplimiento de la política de igualdad sustantiva en la Ciudad de México, mediante la aplicación del principio de transversalidad, a través de la Secretaría de las Mujeres y de la Comisión de Derechos Humanos del Distrito Federal.
+(REFORMADA, G.O. 8 DE MARZO DE 2019)
+III. Evaluar la participación equilibrada entre mujeres y hombres, garantizando el principio de paridad de género, en los cargos públicos de las unidades administrativas de las Alcaldías; establecer vínculos de colaboración permanente con organismos públicos, privados y sociales, para la efectiva aplicación de la presente Ley;
+(REFORMADA, G.O. 8 DE MARZO DE 2019)
+IV. Implementar acciones afirmativas, para garantizar el derecho de la igualdad salarial entre mujeres y hombres en las Alcaldías;
+(REFORMADA [N. DE E. REUBICADA], G.O. 8 DE MARZO DE 2019)
+V. Suscribir los convenios necesarios para el cumplimiento de la presente Ley, y
+(ADICIONADA [N. DE E. REUBICADA], G.O. 8 DE MARZO DE 2019)
+VI. Las demás que esta Ley y otros ordenamientos aplicables le confieren.
