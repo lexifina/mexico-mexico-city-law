@@ -1,0 +1,6 @@
+G.O. 8 DE MAYO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE LOS DERECHOS DE LAS PERSONAS JÓVENES, ASÍ COMO DE LA LEY ORGÁNICA DE LAS ALCALDÍAS, AMBOS ORDENAMIENTOS DE LA CIUDAD DE MÉXICO".]
+PRIMERO: Publíquese en la Gaceta Oficial de la Ciudad de México y en el Diario Oficial de la Federación para su mayor difusión.
+SEGUNDO: Para los efectos del artículo 71 de la Ley Orgánica de las Alcaldía (sic) de la Ciudad de México, las 16 Alcaldías tendrán que contemplar en el Presupuesto de Egresos de la Ciudad de México para el Ejercicio Fiscal 2020 con fecha límite 15 de enero, la creación de por lo menos una Jefatura de Unidad Departamental en materia de juventud.
+TERCERO: Para efectos de la Ley de los Derechos de las Personas Jóvenes de la Ciudad de México, los Órganos Político Administrativos de cada una de las demarcaciones territoriales denominadas "Delegaciones", ahora se deberán entender como "Alcaldías" de la Ciudad de México, en tanto se armonice integralmente su contenido con lo dispuesto en la Constitución Política de la Ciudad de México.
+CUARTO: El presente Decreto entrará en vigor al día siguiente de su publicación.
