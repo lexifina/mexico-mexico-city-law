@@ -57,8 +57,10 @@ VII. La manera en la que se hará la compra de bienes consolidada cuando más de
 VIII. Los tipos penales y faltas administrativas correspondientes a las conductas que impliquen el incumplimiento o la elusión por simulación de lo establecido en dicha ley.
 Las remuneraciones que a la entrada en vigor de la Constitución Local sean superiores a las máximas establecidas en la ley, deberán ser ajustadas o disminuidas en el Presupuesto de Egresos correspondiente al ejercicio fiscal del año siguiente.
 DÉCIMO NOVENO.- En cumplimiento a lo mandatado en el artículo Trigésimo Noveno Transitorio de la Constitución de la Ciudad de México, en las materias de su competencia, el Congreso deberá adecuar la totalidad del orden jurídico de la Ciudad de México a esta Constitución, a más tardar el 31 de diciembre de 2020.
-VIGÉSIMO.- El Congreso tendrá un plazo de 180 días posteriores a la entrada en vigor de esta Ley para expedir la Ley de Patrimonio Histórico, Cultural, Inmaterial y Material, Natural, Rural y Urbano Territorial de la Ciudad de México.
-VIGÉSIMO PRIMERO.- El Congreso tendrá un plazo de 180 días posteriores a la entrada en vigor de esta Ley para expedir la Ley del Registro de la Memoria Oral Histórica de la Ciudad de México.
+(REFORMADO, G.O. 9 DE MAYO DE 2019)
+VIGÉSIMO.- El Congreso deberá expedir a más tardar durante el Primer Periodo Ordinario de Sesiones del Segundo año Legislativo, la Ley de Patrimonio Histórico, Cultural, Inmaterial y Material, Natural, Rural y Urbano Territorial de la Ciudad de México.
+(REFORMADO, G.O. 9 DE MAYO DE 2019)
+VIGÉSIMO PRIMERO.- El Congreso deberá expedir a más tardar durante el Primer Periodo Ordinario de Sesiones del Segundo año Legislativo, la Ley del Registro de la Memoria Oral Histórica de la Ciudad de México.
 VIGÉSIMO SEGUNDO.- De conformidad con el artículo 25 de la Constitución Política de la Ciudad de México y la fracción XVIII del artículo 13 de la Presente Ley, serán sometidas a consulta las disposiciones que sean aplicables a los pueblos y barrios y comunidades indígenas de la Ciudad de México.
 VIGÉSIMO TERCERO.- La Asamblea Legislativa del Distrito Federal a través de la Oficialía Mayor y la Coordinación de Servicios Parlamentarios deberá integrar y hacer entrega al Congreso de la Ciudad de México al inicio de sus funciones y por riguroso inventario de todo lo relativo a:
 I. Su patrimonio;
