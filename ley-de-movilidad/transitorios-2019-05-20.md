@@ -1,0 +1,6 @@
+G.O. 20 DE MAYO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA UN ARTÍCULO 108 BIS A LA LEY DEL RÉGIMEN PATRIMONIAL Y DEL SERVICIO PÚBLICO Y SE REFORMA EL ARTÍCULO 209 DE LA LEY DE MOVILIDAD DEL DISTRITO FEDERAL".]
+Primero. Publíquese el presente Decreto en la Gaceta Oficial de la Ciudad de México y en el Diario Oficial de la Federación para su mayor difusión.
+Segundo. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+Tercero. La Jefatura de Gobierno contará con un plazo de hasta 60 días naturales contados a partir de la entrada en vigor del presente Decreto para adecuar el Reglamento, los Lineamientos y demás disposiciones de carácter administrativo en materia de sistemas de control, supervisión y cobro de estacionamiento de vehículos en la vía pública, previendo en dichos instrumentos las sanciones que derivadas del incumplimiento de lo dispuesto por este Decreto correspondan.
+Cuarto. La Administración Pública de la Ciudad de México y los terceros autorizados para implementar sistemas de control, supervisión y cobro de estacionamiento de vehículos en la vía pública tendrán hasta 120 días naturales para realizar las acciones y adecuaciones pertinentes a fin de dar cumplimiento a lo previsto en el presente Decreto.
