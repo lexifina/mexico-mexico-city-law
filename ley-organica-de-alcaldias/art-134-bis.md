@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 29 DE MAYO DE 2019)
+Artículo 134 Bis. Del presupuesto que el Congreso de la Ciudad les autorice en el correspondiente Decreto de Presupuesto de Egresos, cada una de las Alcaldías deberá destinar al menos el 0.1% a proyectos de inversión en Esterilización Obligatoria Masiva y Gratuita de Animales. Dentro de este porcentaje se incluyen los recursos que la Alcaldía ejerza con cargo al Fondo Adicional de Financiamiento de las Alcaldías.
