@@ -1,0 +1,5 @@
+G.O. 29 DE MAYO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA LOS ARTÍCULOS 26 Y 41 DE LA LEY PARA LA RECONSTRUCCIÓN INTEGRAL DE LA CIUDAD DE MÉXICO".]
+PRIMERO: El presente Decreto entra en vigor al siguiente día después de su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO: Remítase a la Jefa de Gobierno para su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO: Para efectos de lo dispuesto en este Decreto, las disminuciones o condonaciones en materia de contribuciones dispuestas en el Código Fiscal de la Ciudad de México, deberán ajustarse en lo dispuesto en los artículos 44 del Código Fiscal de la Ciudad de México y 123 y 125 de la Ley de Austeridad, Transparencia en Remuneraciones, Prestaciones y Ejercicio de Recursos de la Ciudad de México y lo dispuesto en la Resolución de carácter general mediante la cual se otorgan facilidades administrativas y se condona totalmente y exime el pago de diversas contribuciones y aprovechamientos publicada en el (sic) Gaceta Oficial de la Ciudad de México el 24 de enero de 2019.
