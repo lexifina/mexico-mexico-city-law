@@ -10,5 +10,5 @@ III.- Cuando exista la obligación de reparar las edificaciones que así lo requ
 IV.- Cuando los propietarios o poseedores hubieran construido en contravención a lo dispuesto por los programas, siempre que dichas obras se hubieran realizado con posterioridad a la entrada en vigor de los mismos, y no se hicieran las adecuaciones ordenadas, o bien no se procediera a la demolición ordenada en su caso; y
 (ADICIONADA, G.O. 29 DE ENERO DE 2004)
 V.- Cuando los propietarios de terrenos sin edificar se abstengan de conservarlos libres de maleza y basura.
-(REFORMADO, G.O. 17 DE NOVIEMBRE DE 2017)
-El costo de la ejecución forzosa se considera crédito fiscal, en los términos del Código Financiero de la Ciudad de México.
+(REFORMADO, G.O. 12 DE JUNIO DE 2019)
+El costo de la ejecución forzosa se considera crédito fiscal, en los términos del Código Fiscal de la Ciudad de México.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 12 DE JUNIO DE 2019)
+Artículo 105 Ter.- Cuando se encontraren omisiones o irregularidades en los documentos exhibidos conforme a los cuales se realiza la actividad regulada, denominados declaración, registro, licencia, permiso, autorización, aviso u otra denominación establecida en la normatividad aplicable, con independencia de que ello sea considerado en la resolución respectiva, se dará vista a la autoridad correspondiente para que en su caso inicie el procedimiento respectivo que permita determinar la responsabilidad en el ámbito que proceda.
