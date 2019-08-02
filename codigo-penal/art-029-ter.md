@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 1 DE AGOSTO DE 2019)
+ARTÍCULO 29 TER. La reincidencia será tomada en cuenta para la individualización judicial de la pena y para el otorgamiento o no de los beneficios o de los sustitutivos penales establecidos en las disposiciones legales correspondientes.
+En caso de que el imputado por algún delito doloso calificado por la ley como grave o que amerite prisión preventiva oficiosa, según corresponda, fuese reincidente por delitos de dicha naturaleza, la sanción aplicable por el nuevo delito cometido se incrementará en dos terceras partes y hasta en un tanto más de la pena máxima prevista para éste, sin que exceda del máximo señalado en el artículo 33 del presente Código.
