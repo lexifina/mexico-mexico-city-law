@@ -1,0 +1,8 @@
+G.O. 20 DE AGOSTO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMAN LA DENOMINACIÓN Y LOS ARTÍCULOS 1°, 2°, 3°, 4°, 5°, 6°, 7°, 8° Y 9° DE LA LEY QUE ESTABLECE EL DERECHO A LA PENSIÓN ALIMENTARIA PARA LOS ADULTOS MAYORES DE SESENTA Y OCHO AÑOS, RESIDENTES EN EL DISTRITO FEDERAL".]
+PRIMERO.- En caso de que la federación otorgue la pensión para el bienestar para las personas mayores, de 68 años o más edad, a los residentes en la Ciudad de México, el Gobierno de la Ciudad de México únicamente coadyuvará en la operación administrativa del programa de conformidad con los ordenamientos jurídicos correspondientes.
+SEGUNDO.- Cuando el Gobierno de la Ciudad otorgue la pensión a que se refiere el presente Decreto, publicará las Reglas de Operación correspondientes e informará con oportunidad a los beneficiarios los ajustes razonables al programa.
+Para los meses de junio, julio, agosto, septiembre, octubre, noviembre y diciembre de dos mil diecinueve, la pensión a que se refiere la presente ley se otorgará de conformidad a las "Reglas de Operación de la Pensión para el Bienestar de las Personas Adultas Mayores, para el ejercicio fiscal 2019".
+TERCERO.- En caso de que la federación no otorgue los recursos para la entrega de la pensión para el bienestar para las personas mayores, de 68 años o más edad, a los residentes en la Ciudad de México, el Gobierno de la Ciudad de México garantizará el cumplimiento de la pensión para el bienestar a que se refiere esta ley de acuerdo a la disponibilidad presupuestal en el ejercicio correspondiente.
+CUARTO.- Publíquese en la Gaceta Oficial de la Ciudad de México y para su mayor difusión en el Diario Oficial de la Federación.
+QUINTO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
