@@ -1,0 +1,5 @@
+(ADICIONADO, G.O. 24 DE DICIEMBRE DE 2019)
+Artículo 21 Bis. El responsable deberá poner a disposición del titular el aviso de privacidad simplificado en los siguientes momentos:
+I. Previo a la obtención de los mismos, cuando los datos personales se obtengan de manera directa del titular; y
+II. Previo al uso o aprovechamiento, cuando los datos personales se obtienen de manera directa del titular.
+Las reglas anteriores, no eximen al responsable de proporcionar al titular el aviso de privacidad integral en momento posterior, conforme a las disposiciones aplicables de la presente Ley.

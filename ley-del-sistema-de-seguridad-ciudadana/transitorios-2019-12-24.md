@@ -1,0 +1,11 @@
+G.O. 24 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE EXPIDE LA LEY POR LA QUE SE CREA EL BANCO DE ADN PARA USO FORENSE DE LA CIUDAD DE MÉXICO, SE ADICIONA UN ARTÍCULO 78 BIS A LA LEY DE CENTROS DE RECLUSIÓN PARA EL DISTRITO FEDERAL Y SE REFORMA EL ARTÍCULO 136 DE LA LEY DEL SISTEMA DE SEGURIDAD CIUDADANA DE LA CIUDAD DE MÉXICO EN MATERIA DE REGISTRO DE IDENTIFICACIÓN BIOMÉTRICA".]
+PRIMERO. Publíquese el presente decreto en la Gaceta Oficial de la Ciudad de México y en el sitio web del Congreso de la Ciudad de México para su mayor difusión.
+SEGUNDO. El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. El Banco de Perfiles Genéticos deberá estar en operación a más tardar dentro de los 365 días posteriores a la entrada en vigor de la presente Ley que se expide.
+CUARTO. La implementación del Banco de perfiles genéticos será gradual, debiendo quedar concluida en su totalidad a más tardar el 31 de diciembre del 2022.
+QUINTO. En tanto no entre en funcionamiento la Fiscalía General de Justicia, las funciones que le son atribuidas en la presente Ley, serán desarrolladas por la Procuraduría General de Justicia.
+SEXTO. La Coordinación Interinstitucional deberá elaborar y aprobar los lineamientos, manuales, procedimiento, protocolos, así como la capacitación y certificación, en el término de doce meses contados a partir de la fecha de entrada en vigor de la presente Ley.
+SÉPTIMO. La Fiscalía General de Justicia de la Ciudad de México, a partir de que entre en vigor el presente decreto deberá emitir en un plazo no mayor a 90 días los protocolos de actuación para la toma de muestras, respetando siempre el principio de la dignidad humana.
+OCTAVO. Las referencias hechas a la Fiscalía General de Justicia de la Ciudad de México y a su titular se entenderán hechas para la Procuraduría General de Justicia de la Ciudad de México en tanto no entre en funciones la Fiscalía.
+NOVENO. A partir de la entrada en vigor del presente decreto, se incluirán en la base de datos de las personas sentenciadas, a aquellas que hayan adquirido ese carácter con fecha posterior a la entrada en vigor de la presente ley.
