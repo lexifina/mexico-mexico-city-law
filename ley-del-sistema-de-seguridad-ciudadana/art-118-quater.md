@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 24 DE DICIEMBRE DE 2019)
+Artículo 118 Quáter. En el caso de destitución, si la autoridad jurisdiccional resolviere que fue injustificada, el Gobierno de la Ciudad sólo estará obligado a pagar la indemnización y demás prestaciones a que tenga derecho, sin que en ningún caso proceda su reincorporación al servicio, cualquiera que sea el resultado del juicio o medio de defensa que se hubiere promovido.
