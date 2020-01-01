@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 23 DE DICIEMBRE DE 2019)
+ARTICULO 155 BIS 3.- El impuesto se causará en el momento en que el sujeto pague al organizador, supervisor, encargado, administrador, explotador u operador del establecimiento independientemente de la denominación que reciban, los montos o contraprestaciones que le permitan participar en dichos juegos o concursos, aun cuando permita a otro usuario distinto de él la participación en los mismos, y hasta por el monto de cada pago que se realice de manera directa.

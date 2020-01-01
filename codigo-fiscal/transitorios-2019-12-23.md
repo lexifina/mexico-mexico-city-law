@@ -1,0 +1,291 @@
+G.O. 23 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DEL CÓDIGO FISCAL, Y SE ADICIONA UN PÁRRAFO SEGUNDO AL ARTÍCULO 7º DE LA LEY DE JUSTICIA ADMINISTRATIVA".]
+[…]
+ARTÍCULO VIGÉSIMO PRIMERO.- Para los efectos de emisión de valores unitarios del suelo, construcciones adheridas a él e instalaciones especiales a que se refiere el artículo 129 del Código, se presentan a continuación las siguientes tablas cuya aplicación se hará conforme a las definiciones y normas que se indican:
+DEFINICIONES
+I. REGIÓN: Es una circunscripción convencional del territorio de la Ciudad de México determinada con fines de control catastral de los inmuebles, representada con los tres primeros dígitos del número de cuenta catastral asignado por la autoridad fiscal.
+II. MANZANA: Es una parte de una región que regularmente está delimitada por tres o más calles o límites semejantes, representada por los tres siguientes dígitos del mencionado número de cuenta, la que tiene otros dos que representan el lote, que es el número asignado a cada uno de los inmuebles que integran en conjunto una manzana, y tres dígitos más en el caso de condominios, para identificar a cada una de las localidades de un condominio construido en un lote.
+III. COLONIA CATASTRAL: Es una porción determinada de territorio continuo de la Ciudad de México que comprende grupos de manzanas o lotes, la cual tiene asignado un valor unitario de suelo, expresado en pesos por metro cuadrado, en atención a la homogeneidad observable en cuanto a características, exclusividad y valor comercial. Existen tres tipos de colonia catastral: Área de valor, Enclave de valor y Corredor de valor.
+a) Colonia catastral tipo área de valor: Grupo de manzanas con características similares en infraestructura, equipamiento urbano, tipo de inmuebles y dinámica inmobiliaria.
+Cada área está identificada con la letra A, seguida de seis dígitos, correspondiendo los dos primeros a la Alcaldía respectiva, los tres siguientes a un número progresivo y el último a un dígito clasificador de la colonia catastral.
+Dicha clasificación es la siguiente:
+0: Colonia catastral que corresponde a áreas periféricas de valor bajo con desarrollo incipiente, con usos del suelo que están iniciando su incorporación al área urbana y con equipamientos y servicios dispersos.
+1: Colonia catastral que corresponde a áreas periféricas o intermedias de valor bajo, en proceso de transición o cierta consolidación, con usos del suelo eminentemente habitacionales y con equipamientos y servicios semi dispersos y de pequeña escala.
+2: Colonia catastral que corresponde a áreas intermedias de valor medio bajo, en proceso de transición o cierta consolidación, con usos del suelo eminentemente habitacionales y/o incipiente mezcla de usos y con equipamientos y servicios semi dispersos y de regular escala.
+3: Colonia catastral que corresponde a áreas intermedias de valor medio con cierto proceso de transición o en consolidación, con usos del suelo eminentemente habitacionales y/o mezcla de usos y con equipamientos y servicios semi concentrados y de regular escala.
+4: Colonia catastral que corresponde a áreas urbanas, con servicios completos, equipamiento urbano en escala significativa en la zona o zonas cercanas, con usos de suelo habitacional y/o mixtos y nivel socioeconómico de medio a medio alto.
+5: Colonia catastral que corresponde a áreas urbanas, con servicios completos, equipamiento urbano en escala significativa en la zona o zonas cercanas, usos de suelo habitacionales y/o mixtos y nivel socioeconómico de medio alto a alto.
+6: Colonia catastral que corresponde a áreas urbanas, con servicios completos, equipamiento urbano en escala significativa en la zona o zonas cercanas, usos de suelo habitacional y/o mixtos y nivel socioeconómico de alto a muy alto.
+7: Colonia catastral que corresponde a áreas urbanas, con servicios completos, equipamiento urbano de pequeña escala significativa, usos de suelo preponderantemente comercial y de servicios y nivel socioeconómico de medio bajo a alto.
+8: Colonia catastral que corresponde a áreas urbanas, con servicios completos, equipamiento urbano de diversas escalas y con usos de suelo eminentemente industrial.
+9: Colonia catastral que corresponde a áreas ubicadas en el suelo de conservación, con usos agrícola, forestal, pecuario, de reserva ecológica y/o explotación minera entre otros, con nulos o escasos servicios y equipamiento urbano distante.
+b) Colonia catastral tipo enclave de valor: Porción de manzanas o conjunto de lotes de edificaciones de uso habitacional, que cualitativamente se diferencian plenamente del resto de lotes o manzanas del área en que se ubica en razón de que, no obstante que comparten una infraestructura y equipamiento urbanos generales con las mencionadas áreas, cuentan con características internas que originan que tengan un mayor valor unitario de suelo que el promedio del área, como son la ubicación en áreas perfectamente delimitadas, el acceso restringido a su interior, que cuentan con vigilancia privada, mantenimiento privado de áreas comunes, vialidades internas y alumbrado público y/o privado.
+El valor por metro cuadrado de suelo del enclave se encuentra contenido en el presente Código Fiscal.
+Cada enclave de valor está identificada con la letra E, seguida de dos dígitos que corresponden a la Alcaldía, y una literal progresiva.
+Quedan exceptuados como colonia catastral tipo enclave de valor, los inmuebles donde se ubiquen viviendas de interés social y/o popular.
+c) Colonia catastral tipo corredor de valor: Conjunto de inmuebles colindantes con una vialidad pública de la Ciudad de México que por su mayor actividad económica repercute en un mayor valor comercial del suelo respecto del predominante de la zona, independientemente de su acceso o entrada principal de los inmuebles. El valor por metro cuadrado del suelo del corredor de valor se encuentra contenido en el presente Código Fiscal.
+Cuando un inmueble colinde con más de una vialidad pública considerada como corredor de valor, en términos del párrafo anterior, el valor por metro cuadrado del suelo a aplicar será el valor del corredor de valor que resulte más alto.
+Cada corredor está identificado con la letra "C", seguida de dos dígitos, que corresponden a la Alcaldía, y una literal progresiva.
+IV. TIPO: Corresponde a la clasificación de las construcciones, considerando el uso al que se les dedica y el rango de niveles de la construcción, de acuerdo con lo siguiente:
+Para efectos de la clasificación de las construcciones se entenderá por cuerpo estructural al conjunto de cimentación, elementos verticales y horizontales, es decir, muros de carga, marcos rígidos y/o mixtos, entrepisos, cubiertas, acabados e instalaciones propias del cuerpo.
+El rango de nivel será único para todos los usos comprendidos dentro de un mismo cuerpo estructural.
+Ejemplos de espacios complementarios a usos principales: escaleras, zona de elevadores, vestíbulos, salas de capacitación, auditorios, archivo, bodegas, cuarto de máquinas, cuarto de mantenimiento, cuarto para papelería, cuarto de basura, sanitarios, regaderas y vestidores, comedor, gimnasio, consultorio, entre otros.
+En el caso de un cuerpo estructural, cuyo aprovechamiento genérico corresponda a las claves (NH) No habitacional o (M) Mixto y que contenga áreas para estacionamiento cubierto, estas últimas se clasificarán como K.
+Los usos (A) Abasto e (I) Industria solo podrán aplicarse en cuerpos estructurales completos tipo nave industrial.
+Para cada cuenta catastral, se deberán considerar la totalidad de superficies construidas, cubiertas y descubiertas contenidas en ella según aplique.
+En los casos que en una cuenta catastral se encuentren varios cuerpos de edificios claramente separados, el valor total de la construcción se obtendrá de la suma del valor de cada uno de ellos, los cuales se calcularán en forma independiente.
+a) Uso: Corresponde al aprovechamiento genérico que tiene el inmueble y se clasifica en habitacional y no habitacional. (H) Habitacional.- Se refiere a las edificaciones en donde residen individual o colectivamente las personas o familias y comprende todo tipo de vivienda, a la que se incluyen los cuartos de servicio, patios, andadores, estacionamientos, cocheras y todas las porciones de construcción asociadas a dichas edificaciones. También se incluyen orfanatos, asilos, casas cuna, conventos y similares.
+Cuando un cuerpo estructural no se encuentre asociada al uso habitacional, se clasificará de acuerdo a las características de uso, rango de niveles, clase y edad que le corresponda.
+En caso de inmuebles de uso habitacional sujetos al régimen de propiedad en condominio las unidades de construcción privativas y las áreas de uso común que les correspondan en función del indiviso y que se establezcan en el referido régimen, se clasificarán conforme a las características que el mismo régimen establezca.
+(NH) No Habitacional.- Se refiere a todo inmueble que no se ubique en el supuesto anterior y que para efectos de determinar su tipo se divide en:
+i. Construcciones que cuentan con cubiertas o techos (completos o semi completos).
+L: Hotel. D: Deporte. C: Comercio. O: Oficina. S: Salud. Q: Cultura. E: Educación. A: Abasto. I: Industria. K: Comunicaciones.
+(L) Hotel.- Se refiere a las edificaciones destinadas a prestar servicio de alojamiento temporal, comprendiendo hoteles, moteles, casas de huéspedes, albergues y similares, incluye los espacios complementarios a este uso.
+(D) Deporte y Espectáculos.- Se refiere a aquellas edificaciones e instalaciones en donde se practican ejercicios de acondicionamiento físico y/o se realicen y se presenten todo tipo de espectáculos, tales como: centros deportivos, clubes, pistas, canchas, gimnasios, balnearios, albercas públicas y privadas, academias de acondicionamiento físico y artes marciales, estadios, autódromos, plazas taurinas, arenas de box y luchas, velódromos, campos de tiro, centros de equitación y lienzos charros, pistas de hielo, así como instalaciones donde se lleven a cabo conciertos, incluye los espacios complementarios a este uso.
+(C) Comercio.- Se refiere a las edificaciones destinadas a la prestación o contratación de servicios o la comercialización o intercambio de artículos de consumo y en general cualquier mercadería, tales como: tiendas, panaderías, farmacias, boticas, droguerías, veterinarias, tiendas de auto servicio, tiendas departamentales, centros comerciales, venta de materiales de construcción y electricidad, ferreterías, madererías, vidrierías, venta de materiales y pinturas, renta y venta de artículos, maquinaria, refacciones, llantas, salas de belleza, peluquerías, tintorerías, sastrerías, baños, instalaciones destinadas a la higiene física de las personas, sanitarios públicos, saunas y similares, laboratorios fotográficos, servicios de limpieza y mantenimiento de edificios, servicios de alquiler, suministro de combustible para vehículos, para uso doméstico, o industrial, tales como: gasolineras y en general todo tipo de comercios. También incluye a las edificaciones destinadas al consumo de alimentos y bebidas, entre otros: restaurantes, cafeterías, fondas, cantinas, bares, cervecerías, pulquerías, videobares, centros nocturnos, salas de fiesta y, centros de convenciones, entre otros, incluye los espacios complementarios a este uso.
+(O) Oficina.- Se refiere a aquellas edificaciones destinadas al desarrollo empresarial, público o privado, tales como: oficinas empresariales, corporativas, de profesionistas, sucursales de banco, casas de cambio, oficinas de gobierno, representaciones exclusivas para ese uso y sus accesorios, instalaciones destinadas a la seguridad del orden público y privado, agencias funerarias, de inhumaciones, mausoleos y similares, incluye los espacios complementarios a este uso.
+(S) Salud.- Se refiere a aquellas edificaciones destinadas a la atención, diagnóstico, tratamiento y rehabilitación de las personas afectadas por enfermedades o accidentes, tales como: unidades médicas, clínicas, hospitales, sanatorios, maternidades, laboratorios clínicos y radiológicos, consultorios, despachos médicos de diagnóstico, centros de tratamiento de enfermedades crónicas y similares, incluye los espacios complementarios a este uso.
+(Q) Cultura.- Se refiere a las edificaciones o instalaciones destinadas al desarrollo de actividades culturales, tales como: salas de lectura, hemerotecas, galerías de arte, museos, centros de exposición de arte, planetarios, observatorios, teatros, cines, cinetecas, casas de cultura, academias de danza, música, pintura y similares. Así como, las edificaciones destinadas a las actividades de culto religioso, comprende templos, capillas, iglesias, sinagogas, mezquitas y similares, incluye los espacios complementarios a este uso.
+(E) Educación.- Se refiere a las edificaciones o instalaciones destinadas al desarrollo de actividades de enseñanza: guarderías, jardines de niños, básica, media, escuelas técnicas, superior, postgrado, especial y de enseñanza e investigación, especializadas y similares, incluye los espacios complementarios a este uso.
+(A) Abasto.- Se refiere a las edificaciones e instalaciones públicas y privadas destinadas al almacenamiento, tales como: centros de acopio y transferencia de productos perecederos y no perecederos, bodegas, silos, tolvas, almacén de granos, de huevo, de lácteos, de abarrotes, centrales y módulos de abasto, rastros, frigoríficos, obradores, mercados e instalaciones similares.
+(I) Industria.- Se refiere a cualquier instalación o edificación destinada a ser fábrica o taller, relacionada con la industria extractiva, manufacturera y de transformación, de ensamble, de bebidas, de alimentos, agrícola, pecuaria, forestal, textil, calzado, siderúrgica, metalmecánica, automotriz, química, televisiva, cinematográfica, electrónica y similares. También incluye las instalaciones para el almacenamiento de maquinaria, materias primas y productos procesados, así como aquellas destinadas al alojamiento de equipos e instalaciones relacionadas con los sistemas de agua potable, drenaje, energía eléctrica, servicios de limpia, disposición de desechos sólidos y similares. Asimismo, se incluyen las edificaciones e instalaciones destinadas a prestar servicios de reparación y conservación de bienes muebles y herramientas, tales como: talleres de reparación, lubricación, alineación y balanceo de vehículos, maquinaria, lavadoras, refrigeradores, bicicletas, de equipo eléctrico, vulcanizadoras, carpinterías, talleres de reparación de muebles y similares.
+(K) Comunicaciones.- Se refiere a las edificaciones o instalaciones destinadas a transmitir o difundir información, hacia o entre las personas, incluye las edificaciones o instalaciones destinadas al traslado de personas o bienes, así como a los espacios reservados para el resguardo y servicio de vehículos y similares, tales como: correos, telégrafos, teléfonos, estaciones de radio, televisión y similares, terminales de autobuses urbanos, taxis, peseros, terminales y estaciones de autobuses foráneos y de carga, estacionamientos cubiertos, ya sean públicos o privados, encierros e instalaciones de mantenimiento de vehículos, terminales aéreas, helipuertos (caso particular que no se considera como PE), estaciones de ferrocarril, embarcaderos, muelles y demás edificios destinados a la actividad del transporte.
+ii. Construcciones que no poseen cubiertas o techos: PE: Estacionamientos, patios, plazuelas, terrazas y parques. PC: Canchas deportivas. J: Jardines. P: Panteones. Se refieren a construcciones habilitadas directamente sobre el terreno o sobre estructuras y que conforman pavimentos o áreas verdes para los usos señalados.
+iii. Inmueble sin construcciones (W), aquél que no tenga construcciones permanentes o que teniéndolas su superficie, sea inferior a un 10% a la del terreno, a excepción de:
+a) Los inmuebles que se ubiquen en zonas primarias designadas para la protección o conservación ecológica, y en las zonas secundarias denominadas áreas verdes y espacios abiertos, de acuerdo con la zonificación establecida en los Programas Territoriales o Parciales de la Ciudad de México. Si un predio no se encuentra en su totalidad en dichas zonas, únicamente se aplicará la reducción a la superficie afectada a que se refieren los numerales 1 y 2 de la fracción III, del artículo 130 de este Código;
+b) Los inmuebles que pertenezcan a instituciones educativas, culturales o de asistencia privada;
+c) Los campos deportivos o recreativos acondicionados y funcionando como tales;
+d) Los estacionamientos públicos debidamente autorizados y en operación;
+e) Los inmuebles cuya construcción sea inferior a un 10% de la superficie del terreno y que sean utilizados exclusivamente como casa-habitación por el contribuyente y que cuente con los espacios y servicios propios del uso habitacional; o
+f) Otros inmuebles que sean efectivamente utilizados conforme a la autorización que hubiese otorgado la autoridad competente, misma que deberá ser renovada para presentarse ante la autoridad por ejercicio fiscal.
+(M) Mixto.- Cuando el inmueble se destine conjuntamente a uso habitacional y no habitacional o cuando tenga dos o más usos no habitacionales.
+b) Rango de niveles: Corresponde al número de plantas cubiertas y descubiertas de la construcción a partir del primer nivel utilizable o edificado en el predio en que se ubique.
+En cuerpos estructurales o inmuebles donde existan espacios con grandes alturas cubiertas, sin distinción de niveles, se deberá establecer que cada 3.00 metros de altura equivale a un nivel. En espacios que cuenten con gradas y/o butaquerías para mejorar la visibilidad hacia la parte frontal del recinto, la altura deberá medirse del punto más bajo al punto más alto del cuerpo estructural.
+En los casos que en una cuenta catastral se encuentren varios cuerpos de edificios claramente separados, el valor total de la construcción se obtendrá de la suma del valor de cada uno de ellos, los cuales se calcularán en forma independiente.
+Cuando el nivel más alto de un edificio tenga un porcentaje de construcción menor al 20% de la planta cubierta anterior, el rango de nivel del inmueble se determinará sin tomar en cuenta el último nivel: Asimismo, cuando el nivel más bajo de un edificio tenga un porcentaje de construcción menor al 20% de la planta cubierta inmediata superior, el rango de nivel del inmueble se determinará sin tomar en cuenta el primer nivel.
+El rango de nivel se considerará conforme a la siguiente edificación.
+ClaveDescripción
+01Superficies construidas descubiertas. Aplica sólo
+para aquellas desplantadas directamente sobre
+el terreno.
+02De 1 a 2 niveles o bien, si no existe una clara
+distinción de ellos y la construcción tenga una
+altura hasta de 6.00 metros.
+05De 3 a 5 niveles o bien, si no existe una clara
+distinción de ellos y la construcción tenga una altura
+de 6.01 metros a 15.00 metros.
+10De 6 a 10 niveles.
+15De 11 a 15 niveles.
+20De 16 a 20 niveles.
+99De 21 a más niveles.
+RU
+RANGO ÚNICOOtras.
+V. CLASE: Es el grupo al que pertenece una porción de construcción de acuerdo con las características propias de sus espacios, servicios, estructuras y acabados, la cual tiene asignado un valor unitario de construcción.
+La clase será única por tipo.
+Para determinar la clase de construcción a que pertenece cada edificación, se procederá conforme a lo siguiente:
+En primer término se debe considerar el uso genérico del inmueble, identificándolo como habitacional o no habitacional; posteriormente se ubica de manera específica en la "Matriz de Características" para determinar la clase que aplica para el uso de que se trate.
+Selección de elementos en la "Matriz de Características".
+Cada "Matriz de Características" se compone de apartados en los cuales se consideran distintos elementos de la construcción. Por lo que se deberá seleccionar un solo elemento de los siete que componen cada columna, y así sucesivamente, para cada columna que integra esta matriz.
+Determinación de puntos y clase en la "Matriz de Puntos".
+Se deberá identificar los puntos que correspondan a cada elemento seleccionado en la matriz de características. Hecho lo anterior, los puntos se anotarán en el renglón denominado "Puntos Elegidos", y se deberán sumar los puntos de este renglón, ubicando el resultado en el cuadro "Total de Puntos".
+Finalmente, el total de puntos se ubicará dentro de algún rango de la "Tabla de Puntos", determinándose de esa manera la clase a la cual pertenece la construcción del inmueble.
+a) HABITACIONAL
+En el caso de que el uso genérico del inmueble sea habitacional, se identifican las características de la construcción en la "Matriz de Características" para determinar clases de construcción de Uso: Habitacional y se utilizan los puntos aplicables en la "Matriz de Puntos" para determinar clases de construcción de Uso: Habitacional, conforme al procedimiento señalado en esta fracción.
+Para vivienda multifamiliar, la superficie de construcción que se debe considerar como referencia para determinar la clase, es la que resulte de dividir la superficie total, incluyendo las áreas de uso común, entre el número de unidades familiares.
+No se consideran en este caso los inmuebles sujetos a régimen condominal.
+Para el cálculo de la matriz de los inmuebles sujetos a régimen de propiedad en condominio, deberán considerar como superficie de construcción la que resulte de sumar las áreas privativas más la parte proporcional de área común que le correspondan de acuerdo a su indiviso y que se encuentren en el mismo cuerpo constructivo.
+MATRÍZ DE CARACTERÍSTICAS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO HABITACIONAL
+Anexo 1
+MATRÍZ DE PUNTOS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO HABITACIONAL
+Anexo 1-A
+b) NO HABITACIONAL
+Cuando un inmueble construido originalmente para uso habitacional se destine a Oficina, Hotel, Comercio, Salud, Educación y/o Comunicaciones, se identifican las características de la construcción en la "Matriz de Características" para determinar clases de construcción de Uso: No Habitacional (Casa habitación adaptada para oficina, hotel, comercio, salud, educación y/o comunicaciones) conforme al procedimiento señalado en esta fracción.
+MATRIZ DE CARACTERÍSTICAS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: CASA HABITACIÓN ADAPTADA PARA OFICINA, HOTEL, COMERCIO, SALUD, EDUCACIÓN Y/O COMUNICACIONES
+Anexo 2
+MATRIZ DE PUNTOS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: CASA HABITACIÓN ADAPTADA PARA OFICINA, HOTEL, COMERCIO, SALUD, EDUCACIÓN Y/O COMUNICACIONES
+Anexo 2-A
+Cuando el uso del inmueble sea no habitacional y se trate de construcciones cuyo uso coincide con el propósito original para el que fue construido, tratándose de Oficina, Hotel, Comercio, Salud, Educación y/o Comunicaciones, para la determinación de la clase se aplica la "Matriz de Características" para determinar clases de construcción de Uso: no habitacional (Oficina, Hotel, Comercio, Salud, Educación y/o Comunicaciones), conforme al procedimiento señalado en esta fracción.
+MATRIZ DE CARACTERÍSTICAS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: OFICINAS, HOTELES, COMERCIO, SALUD, EDUCACIÓN Y/O COMUNICACIONES
+Anexo 3
+MATRIZ DE PUNTOS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: OFICINAS, HOTELES, COMERCIO, SALUD, EDUCACIÓN Y/O COMUNICACIONES
+Anexo 3-A
+Cuando el uso del inmueble sea no habitacional y se trate de construcciones cuyo uso coincide con el propósito para el que fue construido, tratándose de Industria, Abasto y/o Cultura, se identifican las características de la construcción en la "Matriz de Características" para determinar clases de construcción de Uso: no habitacional (Industria, Abasto y/o Cultura), conforme al procedimiento señalado en esta fracción.
+MATRIZ DE CARACTERÍSTICAS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: INDUSTRIA, ABASTO Y/O CULTURA
+Anexo 4
+MATRIZ DE PUNTOS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: INDUSTRIA, ABASTO Y/O CULTURA
+Anexo 4-A
+Cuando el uso del inmueble sea no habitacional y se trate de construcciones cuyo uso coincide con el propósito original para el que fue construido, tratándose de Deportes, para la determinación de la clase se aplica la "Matriz de Características" para determinar clases de construcción de uso no habitacional (Deportes), conforme al procedimiento señalado en esa fracción.
+MATRIZ DE CARACTERÍSTICAS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: DEPORTE
+Anexo 5
+MATRIZ DE PUNTOS PARA DETERMINAR CLASES DE CONSTRUCCIONES DE USO NO HABITACIONAL: DEPORTE
+Anexo 5-A
+Para los efectos de la determinación de las clases de construcción y la aplicación de las Matrices de Características y Puntos para determinar Clases de Construcción señaladas en este artículo, se entenderá por:
+ESPACIOS:
+Sala: Es el cuarto de estar en una casa o vivienda.
+Comedor: Es un cuarto de la vivienda destinado para ingerir alimentos.
+Cocina: Cuarto de la vivienda utilizado para cocinar o calentar los alimentos con o sin muebles tipo cocina integral.
+Recámara: Es el cuarto de la vivienda destinado a dormir y al descanso de sus habitantes.
+Cuarto de servicio: Es un cuarto adicional de la vivienda generalmente aislado del resto de la casa, que se ocupa para el alojamiento del servicio doméstico.
+Cuarto de lavado y planchado: Es un cuarto adicional de la vivienda destinado para el alojamiento de los bienes muebles destinados a la limpieza y conservación de las prendas de vestir.
+Estudio: Es un cuarto adicional de la vivienda destinado al esparcimiento y/o desarrollo de actividades académicas, como son una biblioteca o la sala de televisión.
+Gimnasio: Cuarto adicional de la vivienda para realizar ejercicios gimnásticos o deportivos.
+Cajones de estacionamiento: Son los espacios asignados para el resguardo de vehículos.
+Espacios adicionales: Consiste en espacios tales como salón de juegos, salas de proyección, bar, cava y salón de fiestas.
+Unidad Familiar: Espacio de vivienda destinado al uso de un individuo, pareja o familia.
+Vivienda Familiar: Conjunto de unidades familiares, incluyendo áreas de uso común.
+Ejemplo: vecindades.
+SERVICIOS:
+Baño: Habitación destinada al aseo corporal, consiste en wc, lavabo y regadera.
+W.C. en barro y/o letrina sin conexión de agua corriente: Servicios deficientes, espacios mínimos para el aseo personal, regularmente ubicado fuera del cuerpo principal del inmueble, frecuentemente de uso común para varias unidades familiares, mobiliario con alguno de los servicios básicos (wc, lavabo, regadera), en algunos casos con construcción de tipo provisional o incompleta, con y/o sin instalaciones hidráulicas y sanitarias aparentes, fosa séptica, letrina forjada de diversos materiales como barro, tabique, ladrillo, madera, metálico, etc. y/o wc de porcelana.
+Muebles tipo "A": Servicios básicos semi completos, habitualmente ubicados en espacios reducidos y dentro del cuerpo principal de construcción, espacio para el aseo personal regularmente conformado por 1 baño, con instalaciones hidrosanitarias ocultas y/o visibles, mobiliario con algunos de los servicios básicos (wc, lavabo, regadera, calentador de agua de leña y/o gas).
+Muebles tipo "B": Servicios completos, espacio para el aseo personal regularmente conformado por 1 y/o 1 1/2 baños, con instalaciones hidrosanitarias ocultas, con mobiliario completo (wc, lavabo con o sin gabinete, regadera, calentador de agua, gas automático para un servicio), con o sin cancel de aluminio de hasta de 51 mm y acrílico o vidrio hasta de 5 mm.
+Muebles tipo "C": Servicios completos con algún accesorio adicional área de blancos, espacio para el aseo personal regularmente conformado por 2 baños completos o más, con instalaciones hidrosanitarias ocultas, con mobiliario completo (wc, lavabo con o sin gabinete de madera o forjados, ovalines de cerámica o cristal, regadera de tipo teléfono, tina con o sin hidromasaje, calentador de agua automático hasta dos servicios), cancel con perfiles de aluminio esmaltado de hasta de 75 mm con cristal de 6 mm o cancel de vidrio templado de 6 mm.
+Muebles tipo "D": Servicios completos con accesorios y espacios adicionales vestidores, espacio para el aseo personal regularmente conformado por 3 o más baños completos y más de un 1/2 baños para visitas con guardarropa, con instalaciones hidrosanitarias ocultas, con mobiliario completo (wc, lavabo con o sin gabinete de madera o forjado, ovalines de cerámica o cristal, regadera de tipo teléfono, tina con o sin hidromasaje, calentador de agua de paso tipo dúplex), canceles con perfiles de aluminio esmaltado hasta de 75 mm con cristal grabado o esmerilado o canceles con cristal templado grabado de 9 mm de espesor o muros divisorios de muroblock de vidrio.
+Muebles tipo "E": Servicios completos en demasía, con accesorios adicionales y espacios adicionales vestidores, área de vapor, espacio para el aseo personal regularmente conformado por 3 o más baños completos y más de un 1/2 baño, con instalaciones hidrosanitarias ocultas, con mobiliario completo (wc una pieza, lavabo con o sin gabinete de madera o forjado, ovalines de cerámica o cristal, sobre mesetas y cubiertas de laminados naturales finos, regadera de tipo teléfono, tina con o sin hidromasaje, estación de vapor caldera, todos de calidades especiales, canceles con cristal templado, biselado de 12 mm de espesor o muros divisorios de muro block de vidrio de color).
+Muebles tipo "F": Servicios completos en demasía, con accesorios adicionales y espacios adicionales vestidores, área de vapor, espacio para el aseo personal regularmente conformado por 3 o más baños completos y más de un 1/2 baño, con instalaciones hidrosanitarias ocultas, con mobiliario completo (wc de lujo o una pieza, lavabo con o sin gabinete de madera, forjado y con cubiertas de laminados naturales finos, regadera de tipo teléfono, tina con o sin hidromasaje, pueden contar con jacuzzi o sauna, estación de vapor caldera, todos de calidades especiales y con sensores ópticos especiales, canceles con cristal templado, biselado de 12 mm de espesor o muros divisorios de muro block de vidrio de color y/o con iluminación interna y ambiente controlado).
+Muebles tipo "G": En color blanco, en porcentaje de color de 2a, accesorios completos de cerámica o aluminio natural de fabricación nacional.
+Muebles tipo "H": Baño de color, en porcentaje blancos, calidad regular del país, accesorios porcelana, manerales y regaderas metálicos cromados de calidad regular.
+Muebles tipo "I": Baño de color de buena calidad del país, en porcentaje importado, con accesorios, manerales y regaderas de metal cromado y acrílico buena calidad, lavabo con gabinete del país o con pedestal de mármol buena calidad, tina con o sin hidromasaje.
+Muebles tipo "J": Baño de color de buena calidad del país, en porcentaje importados, con accesorios, manerales y regaderas de metal cromado y acrílico buena calidad, lavabo con gabinete y placa de mármol importado, ovalín con pedestal de mármol buena calidad, wc de una pieza.
+Muebles tipo "K": Baño de color de calidad muy buena de importación, con accesorios, manerales y regaderas de metal importado, lavabo con gabinete de maderas finas, placa de mármol en porcentaje importados y ovalín de porcelana decorada, wc de una pieza, tina con o sin hidromasaje.
+Muebles tipo "L": Baño de color calidad excelente de importación, con accesorios, manerales y regaderas de metal importados automáticos inteligentes, lavabo con gabinete de maderas finas, placa de mármol en porcentaje importados y ovalín de porcelana decorada, wc de una pieza automático de excelente calidad, tina con o sin hidromasaje, pueden contar con Jacuzzi o sauna, estación de vapor.
+ESTRUCTURA:
+Estructura: Armazón de hierro, madera o concreto armado que soporta una construcción.
+Muros de carga: Obra de albañilería levantada en posición vertical, para cerrar un espacio y sostener entrepisos o cubiertas, cuya función principal es soportar la estructura.
+Marco rígido: Elemento estructural conformado por una trabe, una contratrabe y dos o más columnas.
+Losa: Superficie llana compacta de concreto armado, que se encarga de separar horizontalmente un nivel o piso.
+Concreto: Mezcla compuesta de piedras menudas, cemento y arena que se emplea en la construcción por su gran dureza y resistencia.
+Concreto armado: Mezcla de concreto reforzada con una armadura de barras de hierro o acero.
+Losa maciza: Losa de concreto armado de 10 cm. de espesor, con refuerzo de varillas en ambas direcciones.
+Losa reticular: Sistema de trabes entrecruzadas formando retículas o huecos que aligeran o disminuyen el peso de una losa, reduciendo la cantidad de concreto mediante la colocación de casetones.
+Losa aligerada: Tipo de losa en la que parte del concreto se remplaza por otros materiales librando claros más largos.
+Entrepisos: Losas intermedias.
+Columna: Soporte cilíndrico o rectangular para sostener entrepisos y/o techumbres.
+Mampostería: Sistema constructivo realizado con piedras desiguales, ajustadas y unidas con mortero de cal y arena.
+Tabique: Masa de arcilla cocida de tamaño y grosor variable. Cuando es delgado se denomina ladrillo, cuando es grueso, tabique.
+Adobe: Ladrillo o tabique de barro sin cocer, secado al sol.
+Cubierta: Losa superior y exterior de una construcción.
+Viga: Barra gruesa de metal, madera o concreto armado que se usa como elemento de soporte horizontal.
+Volados: Techo que en su longitud sólo tiene apoyo en uno de sus lados o costados.
+Claros: Espacio que existe entre elementos verticales de carga (muros o columnas).
+Claro largo: Distancia longitudinal a los ejes de carga entre dos puntos de apoyo.
+Claro Corto: Distancia transversal a los ejes de carga entre dos puntos de apoyo.
+Cemento: Mezcla de arcilla molida y materiales calcáreos en polvo que, en contacto con el agua, se solidifica y endurece. Se utiliza como adherente y aglutinante en la construcción.
+Acero: Aleación de hierro y carbono, en diferentes proporciones, que adquiere con el temple gran dureza y elasticidad.
+Elementos prefabricados: Estructuras o elementos de acero y concreto previamente armados o colocados.
+Graderías: Asiento colectivo a manera de escalón corrido en teatros y estadios.
+ACABADOS:
+Acabado: Perfeccionamiento final de una obra.
+Yeso: Sulfato de calcio hidratado, compacto o terroso, generalmente blanco, que tiene la propiedad de endurecerse rápidamente cuando se amasa con agua, y se emplea en la construcción y en la escultura.
+Plafón: Cielo falso que se utiliza de forma estética, acústica o por tener facilidad de acceso a las instalaciones de un área determinada.
+Pisos: Referido a los materiales de construcción empleado en el terminado o calidad de las áreas de circulación del inmueble.
+Pasta: Masa moldeable hecha con cualquier material para decorar muros.
+Alfombra: Tejido de lana o de otras materias con que se cubre el piso de las habitaciones y escaleras.
+Aplanado: Recubrimiento de las construcciones para el que se utilizan, básicamente como materiales una mezcla de cal y arena, sirve para proteger las superficies.
+Firme: Capa de concreto simple o concreto pobre que sirve para recibir y dar resistencia al piso terminado.
+Firme de concreto simple: Capa sólida de concreto.
+Firme de concreto simple pulido: Capa sólida de concreto pulido.
+Firme de concreto escobillado: Capa de concreto reforzado con una malla electrosoldada de acero de alta resistencia y terminado con escoba.
+Precolado de concreto: Piezas de concreto previamente armado.
+Linóleum: Papel plastificado para cubrir pisos presentado en rollos para su colocación.
+Mosaico: Técnica artística de decoración que se forma pegando sobre un fondo de cemento pequeñas piezas de piedra, vidrio o cerámica de diversos colores y diseños.
+Terrazo: Pavimento formado por trozos de mármol aglomerados con cemento y superficie pulida.
+Pulido: Alisar o dar tersura y lustre a una cosa.
+Parquet: Recubrimiento para suelos de interior, formado por listones muy pequeños de madera dispuestos en formas geométricas.
+Duela: Piso compuesto por tablas de madera maciza en tiras colocadas en un sentido largo.
+Deck: Recubrimiento para suelo de exterior, formado por listones de madera, aglomerado de polímeros.
+Duela laminada: Se trata de un piso de imitación compuesto por PVC con un terminado de papel fotográfico sobre aglomerado.
+Loseta: Pieza pequeña, generalmente de cerámica, que se pone en las paredes o en el suelo.
+Azulejo: Ladrillo pequeño vidriado, de diferentes colores, que se usa para cubrir suelos, paredes o en la decoración. Existen dos tipos: el industrializado o hecho a máquina, y el decorado a mano que se le considera de valor mayor.
+Perfil: Sección de forma determinada de acero laminado, hierro, o PVC que se usa para sostener una placa de vidrio o cualquier otro material.
+Aluminio: Metal de color y brillo similares a los de la plata, ligero, maleable y buen conductor del calor y de la electricidad.
+Esmalte: Laca cosmética que cubre y protege diversos materiales (por ejemplo: madera y aluminio).
+Cancel: Armazón vertical de madera, hierro u otro material, que divide espacios en un cuarto de baño.
+Placa: Plancha o película de metal u otra materia, en general rígida que cubre una superficie.
+Cristal: Material cristalino y traslúcido.
+Cristal acústico: Cristal con aislante de ondas sonoras.
+Cristal térmico: Cristal que conserva la temperatura.
+Lámina: Plancha delgada de metal u otro material, porción de cualquier materia extendida en superficie y de poco grosor.
+Fachada: Aspecto exterior de la construcción.
+Piso: Pavimento natural o artificial de habitaciones, calles y caminos.
+Pavimento: Superficie que se hace para que el piso esté sólido y llano.
+Llano: Superficie sin altos ni bajos.
+Sólido: Macizo, denso y fuerte.
+Pintura: Color preparado con fines cosméticos en acabados.
+Recubrimientos tipo estuco: Pasta de cal, yeso y agua de acabado terso y fino. Se aplica como revestimiento o en relieves ornamentales.
+Ventana: Abertura hecha por lo general de la parte media a la parte superior de una pared para dar luz y ventilación compuesta por un armazón y cristales con que se cierra esa abertura.
+Aglomerado: Material que consiste en planchas compuestas por trozos de madera prensados y endurecidos.
+Mármol: Roca compuesta sobre todo de calcita, muy abundante en la naturaleza y utilizada en la construcción.
+Maderas Finas: Fresno, Roble, Cedro, Bambú.
+Acabado aparente común: Acabado sin algún tipo de tratamiento.
+Acabado aparente artesanal: Acabado con tratamiento final de manera estilizada y/o con mano de obra especializada.
+Materiales de nueva generación: Materiales con innovación técnica, tecnológica y/o sustentable. (ejemplos: pisos digitales, recubrimientos en 3D, muros verdes, etc.)
+[N. DE E. VÉASE ANEXOS EN LA G.O. DE 23 DE DICIEMBRE DE 2019, PÁGINAS DE LA 98 A LA 107.]
+VI.
+a) AVALÚO COMERCIAL: El dictamen técnico practicado por persona autorizada o registrada ante la autoridad fiscal, que permite estimar el valor comercial de un bien inmueble, con base en su uso, características físicas, además de las características urbanas de la zona donde se ubica, así como en la investigación, análisis y ponderación del mercado inmobiliario, y que contenido en un documento o archivo electrónico que reúna los requisitos mínimos de forma y contenido establecidos en el Manual de Procedimientos y Lineamientos Técnicos de Valuación Inmobiliaria, sirve como base gravable para el pago de alguna de las contribuciones establecidas en el Código.
+b) AVALÚO CATASTRAL: El dictamen técnico practicado por persona autorizada o registrada ante la autoridad fiscal, que sirve para apoyar al contribuyente para solicitar la modificación de datos catastrales y permite determinar el valor catastral de un bien inmueble con base en sus características físicas (uso, tipo, clase, edad, instalaciones especiales, obras complementarias y elementos accesorios) aplicando los valores unitarios de suelo y construcción, que el Congreso emite en el Código Fiscal que aplique.
+NORMAS DE APLICACIÓN
+1. Para la aplicación de la Tabla de Valores Unitarios de Suelo a un inmueble específico, se determinará primero la Alcaldía a que corresponda. Según su ubicación se constatará si se encuentra comprendido dentro de la Tabla de Colonia Catastral de tipo Enclave o de tipo Corredor, de ser alguno de estos casos le corresponderá al inmueble el valor unitario por metro cuadrado respectivo. En caso contrario se determinará la región con los tres primeros dígitos del número de cuenta catastral y su Manzana con los tres siguientes dígitos del mismo número de cuenta, a los cuales deberá corresponder una Colonia Catastral de tipo Área con un valor unitario por metro cuadrado. El valor unitario que haya correspondido se multiplicará por el número de metros cuadrados de terreno, con lo que se obtendrá el valor total del suelo del inmueble.
+2. Para la aplicación de la Tabla de Valores Unitarios de las Construcciones, se considerarán las superficies cubiertas o techos y las superficies que no posean cubiertas o techos, según sea el caso. Para determinar el valor de la construcción se clasificará el inmueble en el tipo y clase que le correspondan: con este tipo y clase se tomará el valor unitario de la construcción, establecidos en la Tabla de Valores Unitarios de las Construcciones y se multiplicará por los metros cuadrados de la construcción, con lo que se obtendrá el valor total de la edificación.
+Para la determinación del valor de la construcción de un inmueble de uso habitacional unifamiliar se considerarán todos los espacios cubiertos propios de este uso incluyendo, entre otros, los cuartos de servicio, patios, cajón de estacionamiento, cocheras.
+En caso de inmuebles de uso habitacional sujetos al régimen de propiedad en condominio, se considerará además, la parte proporcional de las áreas comunes que les corresponde conforme a su indiviso. Estas áreas comunes se considerarán como uso habitacional si están en el mismo cuerpo constructivo, si están separadas estructuralmente serán clasificadas de acuerdo a sus usos, rangos de nivel, clases y edades, se considerará cada uso cubierto y descubierto según aplique.
+El valor total de la construcción de inmuebles de uso habitacional sujetos a régimen de propiedad en condominio se obtendrá de la suma del valor de la construcción privativa y el valor de la construcción común.
+En los inmuebles de uso no habitacional, se considerará cada uso cubierto y descubierto según aplique se determinará su tipo y clase que le corresponda. Los inmuebles en esta situación, deberán determinar el valor de la construcción con la suma total de cada una de ellas.
+Para el inmueble que cuenta con distintos usos, incluso habitacional, cuando las personas residan de manera ocasional o para resguardar dichos inmuebles, se debe tomar el valor de cada una y sumarse a las restantes para así obtener el valor total de la construcción.
+Al resultado obtenido se le aplicará una reducción según el número de años transcurridos desde que se terminó la construcción o desde la última remodelación que hubiere afectado a por lo menos un 30% de la superficie construida considerando todas las plantas del inmueble, en razón del 0.8% para cada año transcurrido, sin que en ningún caso se descuente más del 40%. Si los inmuebles tuvieran porciones de construcción con diferentes fechas de terminación, la reducción procederá por cada porción, según el número de años transcurridos desde que se terminó cada una de ellas.
+3. Cuando el inmueble cuente con instalaciones especiales, elementos accesorios u obras complementarias, el valor resultante de aplicar lo señalado en el numeral 2, se incrementará en 8%.
+Instalaciones especiales, aquellas que se consideran indispensables o necesarias para el funcionamiento operacional del inmueble de acuerdo a su uso específico, tales como, elevadores, escaleras electromecánicas, equipos de calefacción o aire lavado, sistema hidroneumático, equipos contra incendio.
+Elementos accesorios, son aquellos que se consideran necesarios para el funcionamiento de un inmueble de uso especializado, que sí se convierten en elementos característicos del bien analizado como: caldera de hoteles y baños públicos, espuela de ferrocarril en industrias, pantalla en un cinematógrafo, planta de emergencia en un hospital, butacas en una sala de espectáculos, entre otros.
+Obras complementarias, son aquellas que proporcionan amenidades o beneficios al inmueble como son: bardas, celosías, andadores, marquesinas, cisternas, equipos de bombeo, gas estacionario, entre otros.
+4. El valor del suelo del inmueble, de sus construcciones y de sus instalaciones especiales, según sea el caso, se sumarán para obtener el valor catastral del inmueble.
+La autoridad fiscal, mediante reglas de carácter general dará a conocer lo relativo a lo dispuesto en el párrafo anterior, en lenguaje llano y mediante folletos ejemplificativos.
+5. El valor catastral determinado mediante avalúo comprenderá la suma de los valores de suelo del inmueble, de sus construcciones, instalaciones especiales, elementos accesorios u obras complementarias, según sea el caso.
+[N. DE E. VÉASE TABLAS EN LA G.O. DE 23 DE DICIEMBRE DE 2019, PÁGINAS DE LA 110 A LA 262.]
+ARTÍCULO VIGÉSIMO SEGUNDO.- Para los efectos de dar a conocer el nivel de desarrollo al que pertenecen las manzanas, para efectos de otorgar un subsidio a los usuarios de los derechos por el suministro de uso doméstico y domésticos y no domésticos simultáneamente (mixto) en la Ciudad de México a que se refiere el artículo 172 del Código, se presentan a continuación las siguientes tablas cuya aplicación se hará conforme a las definiciones y normas de aplicación que se indican:
+DEFINICIONES
+I. ÍNDICE DE DESARROLLO (ID). Construcción estadística que mediante variables de tipo socioeconómico derivadas de información oficial, permite diferenciar territorialmente a la población de la Ciudad de México de acuerdo a su nivel de desarrollo económico, agregando la información a nivel manzana. Las manzanas, en su conjunto, son clasificadas en cuatro distintos tipos: popular, bajo, medio, alto; de acuerdo al valor que para cada una de ellas arroja este índice.
+II. REGIÓN. Circunscripción convencional del territorio de la Ciudad de México determinada con fines de control catastral de los inmuebles, representada por los tres primeros dígitos del número de cuenta catastral asignado por la autoridad fiscal.
+III. MANZANA. Es un segmento de la región que regularmente está delimitada por tres o más calles o límites semejantes, representada por los tres siguientes dígitos del mencionado número de cuenta catastral.
+IV. MANZANA CON ID POPULAR. Clasificación que engloba a las manzanas que guardan características socioeconómicas similares y que se tipifican por tener los niveles de desarrollo más bajos de la Ciudad. En esta categoría se agrupa, además, las manzanas que se encuentran dentro de la zona rural de la Ciudad de México.
+V. MANZANA CON ID BAJO. Clasificación que engloba a las manzanas que guardan características socioeconómicas similares y que se tipifican por tener niveles de desarrollo bajo de la Ciudad.
+VI. MANZANA CON ID MEDIO. Clasificación que engloba a las manzanas que guardan características socioeconómicas similares y que se tipifican por tener niveles de desarrollo medio de la Ciudad.
+VII. MANZANA CON ID ALTO. Clasificación que engloba a las manzanas que guardan características socioeconómicas similares y que se tipifican por tener los más altos niveles de desarrollo de la Ciudad.
+NORMAS DE APLICACIÓN
+1. Para el establecimiento del subsidio otorgado a los usuarios del suministro doméstico de agua a que hace referencia el artículo 172 del Código, se determinará primero la alcaldía a la que corresponda la toma del usuario.
+2. Posteriormente se identificará la región-manzana a la que pertenece mediante los seis primeros dígitos de la cuenta catastral que corresponde al inmueble de uso doméstico y doméstico y no doméstico simultáneamente (mixto) donde se encuentra la toma.
+3. Al identificar la región-manzana dentro de la alcaldía se observará el tipo de manzana al que pertenece y ese remitirá, de manera directa, al subsidio que le corresponde al usuario de la toma de acuerdo al artículo 172 del Código.
+[N. DE E. VÉASE TABLAS EN LA G.O. DE 23 DE DICIEMBRE DE 2019, PÁGINAS DE LA 264 A LA 395.]
+ARTÍCULO VIGÉSIMO TERCERO.- Tratándose del trámite de actualización de datos catastrales mediante avalúo no operará durante el ejercicio fiscal 2020 la resolución afirmativa ficta a que se refiere el artículo 55 de este Código.
+ARTÍCULO VIGÉSIMO CUARTO.- La Secretaría de Administración y Finanzas a la fecha de entrada en vigor del presente Decreto, iniciará el desarrollo e implementación del Sistema por el cual se sustanciará el procedimiento e- Revocación, para efectos de que inicie su operación en los términos que señale la propia Secretaría.
+Una vez que inicie la operación de dicho Sistema, previo aviso que se publique en la Gaceta Oficial de la Ciudad de México, se derogará el Título Tercero, del Libro Tercero del Código Fiscal de la Ciudad de México y entrará en vigor el Título Tercero BIS, del Libro Tercero del mismo Código.
+ARTÍCULO VIGÉSIMO QUINTO.- Los recursos de revocación interpuestos antes de la entrada en vigor del Título Tercero BIS, del Libro Tercero del Código Fiscal de la Ciudad de México, se deberán concluir con las disposiciones vigentes al momento de su interposición.
+ARTÍCULO VIGÉSIMO SEXTO.- Para efectos del segundo párrafo del artículo Vigésimo Cuarto Transitorio del presente Decreto, los contribuyentes podrán optar por desistirse de los recursos de revocación, así como de los juicios tramitados ante el Tribunal de Justicia Administrativa de la Ciudad de México y de los Juicios de Amparo interpuestos ante el Poder Judicial de la Federación, que se encuentren pendientes de resolución, para tramitar ante la Procuraduría Fiscal de la Ciudad de México un convenio de conciliación, a efecto de obtener los beneficios de la condonación del 100% de multas y recargos, siempre que se demuestre que la resolución impugnada contiene violaciones a las disposiciones fiscales.
+En caso de no haberse comprobado que las resoluciones impugnadas contienen violaciones a las disposiciones fiscales, pero los contribuyentes deseen obtener los beneficios de la condonación, podrán solicitar la adopción de un convenio de conciliación; en estos supuestos, se autoriza a la Procuraduría Fiscal de la Ciudad de México para que determine el porcentaje de condonación de las multas y los recargos, para lo cual apreciará las circunstancias particulares de cada caso.
+De igual manera, los contribuyentes a los que se les hubiese incoado un procedimiento administrativo de ejecución, por adeudos correspondientes a créditos fiscales, que no deriven de procedimientos resarcitorios o de créditos fiscales distintos a los determinados por las autoridades fiscales señaladas en el artículo 7 del Código Fiscal de la Ciudad de México, podrán solicitar la adopción de un convenio conciliatorio, a fin de obtener los beneficios de dicho convenio; en estos supuestos, se autoriza a la Procuraduría Fiscal de la Ciudad de México, para que determine el porcentaje de condonación de las multas y los recargos, para lo cual apreciará las circunstancias particulares de cada caso.
+ARTÍCULO VIGÉSIMO SÉPTIMO.- Una vez que entre en vigor el Título Tercero BIS, del Libro Tercero del Código Fiscal de la Ciudad de México, toda referencia realizada al Recurso de Revocación se entenderá hecha al Procedimiento de e-Revocación.
+ARTÍCULO VIGÉSIMO OCTAVO.- Las disposiciones relativas a la operación del Título Tercero BIS, del Libro Tercero, del Código Fiscal de la Ciudad de México se sujetarán a lo establecido en la normatividad que para tal efecto publique la Secretaría.
+ARTÍCULO VIGÉSIMO NOVENO.- La reforma al artículo 7 de la Ley de Justicia Administrativa de la Ciudad de México, iniciará su vigencia una vez que se cumpla con lo establecido en el artículo Vigésimo Cuarto Transitorio del presente Decreto.
+ARTÍCULO TRIGÉSIMO.- Los usuarios con Uso Doméstico obligados al pago de los Derechos por el Suministro de Agua que provea la Ciudad de México, ubicados en las colonias que determine el Sistema de Aguas de la Ciudad de México que durante el primero, segundo y tercer bimestre del año, registren un consumo superior a los 60,000 litros, deberán pagar un 35% adicional respecto a la tarifa que corresponda del artículo 172 del Código Fiscal de la Ciudad de México.
+Para efectos del párrafo anterior, el citado Sistema de Aguas deberá publicar a más tardar el 20 de enero de 2020 el referido listado de colonias.
+ARTÍCULO TRIGÉSIMO PRIMERO.- Las reformas a los artículos 269 y 287 del Presente Decreto, entrarán en vigor, el día en que así lo haga la Ley para el Fomento, la Promoción y el Desarrollo del Cine Mexicano, así como la Ley de Filmaciones de la Ciudad de México.
+En tanto eso no ocurra, las disposiciones vigentes serán las siguientes:
+ARTÍCULO 269.- Por la expedición del Permiso de Filmación en la vía pública, se pagarán derechos por día conforme a las siguientes cuotas:
+a) Filmación en vías ciclistas … $953.50
+b) Filmación en vías de tránsito peatonal … $953.50
+c) Filmación en vías de tránsito vehicular … $4,754.50
+d) Derogado.
+e) Filmación urgente en vías de tránsito vehicular … $9,507.50
+f) Modificación de Permiso … $953.50
+g) Prórroga de Permiso … $953.50
+El pago de los derechos previstos en este artículo aumentará en cincuenta por ciento, cuando la filmación solicitada se lleve a cabo en el perímetro vial conformado por Eje Central Lázaro Cárdenas, José María Izazaga y su continuación San Pablo, Anillo de Circunvalación y su continuación Vidal Alcocer, Peña y Peña y su continuación Apartado y República de Perú; así como en el perímetro vial constituido por Avenida Hidalgo, Doctor Mora, Avenida Juárez y Eje Central Lázaro Cárdenas.
+Un cincuenta por ciento de los derechos correspondientes a este artículo se destinarán para la operación de la Comisión de Filmaciones de la Ciudad de México y, el otro cincuenta por ciento será destinado al patrimonio del Fideicomiso para la Promoción y Desarrollo del Cine Mexicano en el Distrito Federal.
+No se generará el cobro de los derechos establecidos en este artículo a los estudiantes de la Ciudad de México, debidamente acreditados, que lleven a cabo producciones cinematográficas en términos de la ley de la materia.
+ARTÍCULO 287.- Las personas que lleven a cabo producciones cinematográficas mexicanas, tendrán derecho a una reducción del 80% respecto de los derechos a que refiere el artículo 269, incisos c) y e).
+Para obtener la reducción a que refiere este artículo, los contribuyentes deberán acreditar que su producción cinematográfica es 100% mexicana, a través de la constancia que para tal efecto expida la Comisión de Filmaciones de la Ciudad de México.
+ARTÍCULO TRIGÉSIMO SEGUNDO.- A más tardar el 30 de marzo de 2020, la persona titular de la Jefatura de Gobierno de la Ciudad de México, emitirá un programa para otorgar un subsidio del 50% en las tarifas establecidas en el artículo 181, Apartado A, fracción I, inciso a), fracción III, inciso a), y fracción IV, inciso a), así como las determinadas en el Apartado B, fracción I, inciso a), del Código Fiscal, para beneficiar a personas que habiten en inmuebles de uso doméstico y mixto, situados en las manzanas de tipo popular y bajo.
+ARTÍCULO TRIGÉSIMO TERCERO.- Para el Ejercicio Fiscal 2020, la persona titular de la Jefatura de Gobierno deberá emitir a más tardar el 30 de enero, una Resolución de carácter general en la cual se otorgue un subsidio respecto a la cuota que resulte de la tarifa que corresponda del artículo 172 del Código Fiscal de la Ciudad de México, a favor de aquellos usuarios con toma de Uso No Doméstico, clasificados como mercados públicos, concentraciones, micro y/o pequeñas empresas, que durante el ejercicio fiscal 2020 registren un consumo de hasta 30,000 litros por bimestre o menos.
+ARTÍCULO TRIGÉSIMO CUARTO.- A más tardar el 30 de enero de 2020, la Jefa de Gobierno emitirá un programa de Condonación del Impuesto Predial y de los Derechos por el Suministro de Agua, a los propietarios o poseedores de inmuebles que presenten daños ocasionados por las obras de construcción del Tren Interurbano denominado "Tren Toluca- Valle de México."
+Los porcentajes de condonación deberán aplicarse con base en la afectación del referido inmueble y, en consideración a ello, se otorgará, el 75% o 100% de la condonación, respectivamente.
+ARTÍCULO TRIGÉSIMO QUINTO.- A más tardar el 30 de enero de 2020, la Jefa de Gobierno emitirá un programa de Condonación del Impuesto Predial y de los Derechos por el Suministro de Agua, a los propietarios o poseedores de inmuebles ubicados en las colonias Primera Victoria, Minas de Cristo y Cove, de la Alcaldía en Álvaro Obregón, que presenten daños ocasionados por las obras de ampliación de la Línea 12 del Sistema de Transporte Colectivo Metro.
+Los porcentajes de condonación deberán aplicarse con base en la afectación del referido inmueble y, en consideración a ello, se otorgará, el 75% o 100% de la condonación, respectivamente.
+ARTÍCULO TRIGÉSIMO SEXTO.- Los notarios podrán presentar para inscripción en el Registro Público de la Propiedad y de Comercio a más tardar el 31 de enero de 2020, el o los testimonios respecto de los actos jurídicos relacionados con adquisición o transmisión de inmuebles con las reducciones a que se refieren los artículos 275 Bis y 275 Ter, en el caso de que los contribuyentes hayan obtenido la constancia expedida por la Dirección General de Regularización Territorial en el año 2019 y que los derechos correspondientes hubieran sido pagados a más tardar el último día de diciembre del mismo año.

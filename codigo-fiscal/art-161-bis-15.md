@@ -1,6 +1,8 @@
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REUBICADO, G.O. 31 DE DICIEMBRE DE 2012)
-ARTICULO 161 BIS 15.- Tratándose de motocicletas de fabricación nacional o importadas, el impuesto será el que resulte de aplicar el procedimiento siguiente:
+(REFORMADO PRIMER PÁRRAFO, G.O. 23 DE DICIEMBRE DE 2019)
+ARTICULO 161 BIS 15.- Tratándose de motocicletas de fabricación nacional o importadas, cuyo año modelo sea posterior a 2001, el impuesto será el que resulte de aplicar el procedimiento siguiente:
+(ADICIONADO (N. DE E. ESTE PÁRRAFO], G.O. 30 DE DICIEMBRE DE 2011)
 El valor total de la motocicleta se multiplicará por el factor de depreciación, de acuerdo al año modelo de la motocicleta, de conformidad con la siguiente:
+(ADICIONADA, G.O. 30 DE DICIEMBRE DE 2011)
 TABLA:
 Años de antigüedadFactor de depreciación
 10.9
@@ -12,10 +14,9 @@ Años de antigüedadFactor de depreciación
 70.3
 80.2
 9 y siguientes0.1
-(REFORMADO, G.O. 30 DE DICIEMBRE DE 2015)
-A la cantidad obtenida conforme al párrafo anterior, se actualizará de conformidad con lo dispuesto en el artículo 161 BIS 1 de este Código; al resultado se le aplicará la tarifa a que hace referencia el artículo 161 BIS 9 de este Capítulo.
+(REFORMADO, G.O. 23 DE DICIEMBRE DE 2019)
+A la cantidad obtenida conforme al párrafo anterior, se actualizará de conformidad con lo dispuesto en el artículo 161 BIS 1 de este Código; al resultado se le aplicará la tasa a que hace referencia el artículo 161 BIS 9 de este Capítulo.
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011)
 Para efectos de la depreciación a que se refiere este artículo, los años de antigüedad se calcularán con base en el número de años transcurridos a partir del año modelo al que corresponda la motocicleta.
 (ADICIONADO, G.O. 30 DE DICIEMBRE DE 2015)
 Tratándose de motocicletas eléctricas, el impuesto se pagará a la tasa de 0%.
-CAPITULO VII
-Del Impuesto por la Prestación de Servicios de Hospedaje

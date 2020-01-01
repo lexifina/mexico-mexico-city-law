@@ -25,3 +25,9 @@ b) Corroborar el adecuado funcionamiento, integridad, legibilidad y formato de l
 c) Verificar que los archivos electrónicos a remitir por el Sistema en Línea se encuentren libres de virus, y en caso contrario, aplicar los mecanismos necesarios para eliminarlos.
 En caso de que no exista coincidencia entre la información registrada por el usuario en los campos de captura correspondientes y el contenido de la promoción enviada a través del Sistema en Línea, la autoridad podrá requerirlo para que, dentro del plazo de 5 días hábiles, señale la información correcta.
 Cualquier documento digital que obre en el expediente electrónico deberá cumplir con las características de accesibilidad, fácil manejo, inalterabilidad y sin restricciones de copiado del texto o de cualquier contenido, impresión o consulta.
+(ADICIONADO CON LOS CAPÍTULOS, SECCIONES Y ARTÍCULOS QUE LO INTEGRAN, G.O. 23 DE DICIEMBRE DE 2019)
+TITULO TERCERO BIS
+DEL PROCEDIMIENTO DE e-REVOCACIÓN
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.O. 23 DE DICIEMBRE DE 2019)
+CAPITULO I
+Disposiciones Generales

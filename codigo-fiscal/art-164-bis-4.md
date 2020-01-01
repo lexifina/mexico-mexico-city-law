@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 23 DE DICIEMBRE DE 2019)
+ARTICULO 164 BIS 4.- El impuesto se causará en el momento en que el enajenante perciba efectivamente el importe correspondiente al precio de venta final de las bebidas con contenido alcohólico objeto del presente Capítulo, igualmente, cuando las contraprestaciones se paguen parcialmente el impuesto se calculará aplicando a la parte de la contraprestación pagada la tasa respectiva.
+Cuando la contraprestación percibida no sea en dinero, sino total o parcialmente en otros bienes o servicios, se considerará como valor de éstos el de mercado o, en su defecto, el de avalúo. Los mismos se tomarán en cuenta en caso de donación, cuando por ello deba pagar el impuesto establecido en este Capítulo.
