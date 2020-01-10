@@ -1,0 +1,11 @@
+[N. DE E. DE CONFORMIDAD CON EL TRANSITORIO SEGUNDO DEL PRESENTE ORDENAMIENTO, ENTRA EN VIGOR EL DÍA DIEZ DE ENERO DE DOS MIL VEINTE.]
+LEY ORGÁNICA DE LA FISCALÍA GENERAL DE JUSTICIA DE LA CIUDAD DE MÉXICO
+Ley publicada en el Número 248 Bis de la Gaceta Oficial de la Ciudad de México, el martes 24 de diciembre de 2019.
+DRA. CLAUDIA SHEINBAUM PARDO, Jefa de Gobierno de la Ciudad de México, a sus habitantes sabed.
+Que el H. Congreso de la Ciudad de México I Legislatura, se ha servido dirigirme el siguiente:
+D E C R E T O
+CONGRESO DE LA CIUDAD DE MÉXICO
+I LEGISLATURA
+EL CONGRESO DE LA CIUDAD DE MÉXICO, DECRETA:
+SE EXPIDE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DE JUSTICIA DE LA CIUDAD DE MÉXICO.
+DECRETO
