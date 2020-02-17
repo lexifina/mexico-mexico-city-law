@@ -1,0 +1,6 @@
+G.O. 14 DE FEBRERO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA LA FRACCIÓN XXIV AL ARTÍCULO 48 RECORRIENDO LOS SUBSECUENTES Y SE ADICIONA LA FRACCIÓN VI AL ARTÍCULO 49 RECORRIENDO LOS SUBSECUENTES, DE LA LEY PARA LA INTEGRACIÓN AL DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DE LA CIUDAD DE MÉXICO".]
+Primero. Publíquese en la Gaceta Oficial de la Ciudad de México y para su mayor difusión en el Diario Oficial de la Federación.
+Segundo. El presente Decreto entrará en vigor un día después de su publicación en la Gaceta Oficial de la Ciudad de México.
+Tercero. El Decreto de Presupuesto de Egresos de la Ciudad de México 2020, deberá considerar los recursos suficientes para el funcionamiento de la Unidad Administrativa denominada Observatorio de Lengua de Señas Mexicanas adscrita al Instituto de Personas Con Discapacidad de la Ciudad de México.
+Cuarto. La Junta Directiva del Instituto de Personas con Discapacidad deberá armonizar el Estatuto Orgánico del Instituto para incluir la Unidad Administrativa denominada Observatorio de Lengua de Señas Mexicana en su Estructura Orgánica, señalando sus competencias y atribuciones dentro de los 120 días naturales siguientes a la publicación del presente decreto en la Gaceta Oficial de la Ciudad de México.
