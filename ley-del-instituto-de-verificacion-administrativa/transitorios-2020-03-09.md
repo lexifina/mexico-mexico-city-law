@@ -1,0 +1,8 @@
+G.O. 9 DE MARZO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE DEROGAN LOS ARTÍCULOS 37, 38, 39, 40, 41, 42, 43 Y 44 DE LA LEY DEL INSTITUTO DE VERIFICACIÓN ADMINISTRATIVA DE LA CIUDAD DE MÉXICO. SE EXPIDE LA LEY DE RESPONSABILIDAD SOCIAL MERCANTIL DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- Publíquese el presente Decreto en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO.- Como una acción de la responsabilidad social mercantil el Instituto de Verificación Administrativa de la Ciudad de México en coordinación con las Alcaldías emitirá, dentro de un plazo de 180 días posteriores a la entrada en vigor de la presente Ley, un programa de visitas de verificación voluntaria para establecimientos mercantiles con giro de bajo impacto.
+CUARTO.- Las visitas de verificación aleatoria se comenzarán a realizar a partir del mes de enero del año 2021, conforme a lo establecido en el artículo 25 de la presente Ley.
+QUINTO.- Se instruye al Gobierno de la Ciudad de México a llevar a cabo la actualización de normas regulatorias y vinculantes al presente decreto en un término no mayor a noventa días, los cuales comenzarán a contarse a partir de la publicación del mismo.
+SEXTO.- La persona titular de la Jefatura de Gobierno de la Ciudad de México, en un plazo máximo de 120 días contados a partir de la entrada de vigor de esta ley, deberá expedir su reglamento, y especificar en el mismo el proceso de elección para llevar a cabo la visita de verificación a que hace referencia el artículo 25, fracción I, de la presente ley.
