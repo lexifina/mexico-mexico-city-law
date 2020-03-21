@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 20 DE MARZO DE 2020)
+ARTÍCULO 5 TER.- Los CACI privados o comunitarios, procurarán otorgar descuentos en las cuotas y costos desde un cincuenta por ciento hasta un cien por ciento a por lo menos el cinco por ciento de su matrícula, a aquellos usuarios que se encuentren en situaciones de vulnerabilidad de acuerdo a los lineamientos que al efecto emita el Comité de Desarrollo Interinstitucional de Atención y Cuidado de la Infancia.
+Se exceptuarán de esta disposición a aquellos CACI que por otra disposición normativa otorguen estos beneficios a los usuarios en mayor proporción a los establecidos en este artículo.

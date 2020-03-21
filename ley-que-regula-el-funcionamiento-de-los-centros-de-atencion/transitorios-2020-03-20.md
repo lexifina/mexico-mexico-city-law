@@ -1,0 +1,5 @@
+G.O. 20 DE MARZO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA LA DENOMINACIÓN DE LA LEY; SE REFORMAN LOS ARTÍCULOS 1, 2, 3, 4 FRACCIONES I, VII, VIII, IX, X, XII, XV, XVI, XVII Y XVIII, 5, 7, FRACCIÓN IV, 8, PRIMER PÁRRAFO, 9, FRACCIONES I Y V, 13, 15, 22, 27, 46, FRACCIONES I Y II, INCISO C), 47, 55 Y 56; Y SE ADICIONAN LOS ARTÍCULOS 5 BIS Y 5 TER TODOS DE LA LEY QUE REGULA EL FUNCIONAMIENTO DE LOS CENTROS DE ATENCIÓN Y CUIDADO INFANTIL PARA EL DISTRITO FEDERAL".]
+PRIMERO.- Remítase a la Jefatura de Gobierno de la Ciudad de México, para su publicación en la Gaceta Oficial de la Ciudad de México
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO.- La Jefatura de Gobierno contará con 30 días contados a partir de la entrada en vigor del presente Decreto, para realizar las modificaciones correspondientes al Reglamento de la Ley que Regula el Funcionamiento de los Centros de Atención y Cuidado Infantil para el Distrito Federal.

@@ -14,4 +14,6 @@ V. Por quien habite ocasional o permanentemente en el mismo domicilio de la víc
 VI. Aprovechando la confianza depositada en ella por la víctima, por motivos de afectividad, amistad o gratitud.
 VII. Encontrándose la víctima a bordo de un vehículo particular o de servicio público; o
 VIII. Fuere cometido en despoblado o lugar solitario.
-En los casos anteriores, el juez acordará las medidas pertinentes para que se le prohíba al agresor tener cualquier tipo de contacto o relación con el menor.
+(NOTA: EL 20 DE FEBRERO DE 2023 EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS CONSIDERANDOS NOVENO Y DÉCIMO, ASÍ COMO EN LOS RESOLUTIVOS QUINTO Y SÉPTIMO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 187/2020 Y SU ACUMULADA 218/2020, DECLARÓ LA INVALIDEZ DE LA PORCIÓN NORMATIVA DEL PÁRRAFO ÚLTIMO DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 21 DE MARZO DE 2020, FECHA EN LA QUE ENTRÓ EN VIGOR DICHO PRECEPTO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+(REFORMADO, G.O. 20 DE MARZO DE 2020)
+En los casos anteriores, el juez acordará las medidas pertinentes para que se le prohíba al agresor tener cualquier tipo de contacto o relación con el menor, ADEMÁS DE ORDENAR EN LA SENTENCIA RESPECTIVA QUE EL SENTENCIADO QUEDE INSCRITO EN EL REGISTRO PÚBLICO DE PERSONAS AGRESORAS SEXUALES DE LA CIUDAD DE MÉXICO.
