@@ -1,0 +1,4 @@
+G.O. 28 DE JULIO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO SÉPTIMO; EL PRIMER PÁRRAFO Y LAS FRACCIONES I, VII Y VIII DEL ARTÍCULO 33 Y SE ADICIONA UNA FRACCIÓN IX AL ARTÍCULO 33 DE LA LEY PARA LA INTEGRACIÓN AL DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
+SEGUNDO.- Publíquese en la Gaceta Oficial de la Ciudad de México y para su mayor difusión en el Diario Oficial de la Federación.
