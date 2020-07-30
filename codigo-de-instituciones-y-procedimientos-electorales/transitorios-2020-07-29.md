@@ -1,0 +1,10 @@
+G.O. 29 DE JULIO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN EL CÓDIGO DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES DE LA CIUDAD DE MÉXICO Y LA LEY PROCESAL ELECTORAL PARA LA CIUDAD DE MÉXICO".]
+PRIMERO.- Publíquese en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- Para su mayor difusión, publíquese en el Diario Oficial de la Federación.
+TERCERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en la Gaceta Oficial de la Ciudad de México.
+CUARTO.- Para los efectos de lo dispuesto en los artículos 63, fracción XII; y 94, fracción I, las unidades referidas contarán con un plazo de 30 días hábiles para proponer al Consejo General los programas de educación cívica, principios democráticos, paridad de género, perspectiva intercultural, igualdad y no discriminación, respeto y promoción a los derechos humanos de las mujeres en el ámbito político; así como elaborar, proponer y coordinar programas de educación cívica, principios democráticos, paridad de género, perspectiva intercultural, igualdad y respeto a los derechos humanos de las mujeres en el ámbito político, respectivamente.
+QUINTO.- Se derogan todas las disposiciones del Código de Instituciones y Procedimientos Electorales y de la Ley Procesal Electoral, ambos ordenamientos de la Ciudad de México, que se opongan al contenido del presente Decreto.
+SEXTO.- Los subsecuentes nombramientos que se lleven a cabo con motivo de la aplicación de las leyes e instancias a que hace referencia al presente Decreto, deberán realizarse garantizando el principio de paridad de género.
+SÉPTIMO.- Para garantizar el principio de paridad de género en la postulación de candidaturas a los cargos de elección popular en los próximos procesos electorales, el Instituto Electoral aplicará los lineamientos utilizados en el Proceso Electoral Ordinario 2017-2018.
+Los Distritos Electorales y Demarcaciones Territoriales se ordenarán de mayor a menor conforme al porcentaje de votación obtenido en el proceso electoral anterior, y se dividirán en tres bloques de competitividad, y en caso de remanente, éste se considerará en el bloque de competitividad alta.

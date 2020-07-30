@@ -1,0 +1,7 @@
+(ADICIONADO, G.O. 29 DE JULIO DE 2020)
+Artículo 264 Bis. El Protocolo de Atención, Sanción y Erradicación de la Violencia Política en Razón de Género establecerá:
+I. Definición de violencia política en razón de género y que actos la constituyen;
+II. Establecerá el marco normativo federal, local y de cada Partido Político en materia de derechos político electorales y violencia política en razón de género;
+III. Principios rectores para la atención de los casos de violencia política en razón de género;
+IV. Instancias competentes para atender y sancionar al interior de cada Partido Político la violencia política en razón de género, estableciendo de forma clara el proceso de denuncia y atención para las víctimas;
+V. Mecanismos de evaluación de la efectividad del protocolo.
