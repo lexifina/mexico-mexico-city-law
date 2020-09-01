@@ -71,8 +71,12 @@ La persona que actualmente ocupa la presidencia del Pleno del Tribunal y del Con
 Los procedimientos del Consejo de la Judicatura iniciados antes del 17 de septiembre de 2018, se agotarán en los términos de las disposiciones vigentes hasta antes de la entrada en vigor de la presente Constitución.
 (REFORMADO, G.O. 21 DE MARZO DE 2019)
 El Tribunal Superior de Justicia designará a las y los integrantes de la Sala Constitucional a más tardar el 1 de diciembre de 2019. La Sala Constitucional se instalará al día siguiente.
-(REFORMADO, G.O. 21 DE MARZO DE 2019)
-El Consejo de la Judicatura deberá instalar juzgados tutelares en cada una de las alcaldías, mismos que deberán entrar en funcionamiento a más tardar el 31 de julio de 2020.
+(REFORMADO [N. DE E. ADICIONADO], G.O. 31 DE AGOSTO DE 2020)
+A más tardar, al 30 de septiembre de 2020, deberán entrar en funcionamiento por lo menos dos juzgados tutelares en igual número de alcaldías.
+(REFORMADO [N. DE E. ADICIONADO], G.O. 31 DE AGOSTO DE 2020)
+A partir del año 2021, el Consejo de la Judicatura, deberá instalar anualmente, un juzgado Tutelar en al menos cuatro alcaldías de la Ciudad; hasta que cada una de las dieciséis alcaldías cuente con un juzgado.
+(REFORMADO, G.O. 31 DE AGOSTO DE 2020)
+El Consejo de la Judicatura, deberá realizar las acciones administrativas y presupuestales necesarias para la instalación progresiva de los juzgados señalados en los párrafos anteriores. En la aprobación de su Presupuesto de Egresos, el Congreso de la Ciudad de México, tomará las previsiones necesarias para tal fin.
 La competencia de dichos juzgados, así como el procedimiento que deberá seguirse ante éstos para el ejercicio de las acciones de protección efectiva de derechos, se regularán en la Ley Orgánica del Poder Judicial.
 Las delegaciones de la Comisión de Derechos Humanos de la Ciudad de México en cada una de las demarcaciones territoriales deberán quedar instaladas en su totalidad a más tardar el 1 de enero de 2020.
 Para tal efecto, en el Presupuesto de Egresos de 2019, el Congreso de la Ciudad de México aprobará las partidas presupuestales necesarias para su integración e instalación.
