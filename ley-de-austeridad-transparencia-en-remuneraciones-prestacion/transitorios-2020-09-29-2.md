@@ -1,0 +1,4 @@
+G.O. 29 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA UNA FRACCIÓN VI Y UNA FRACCIÓN LXXIX AL ARTÍCULO 2, RECORRIENDO EN SU ORDEN LAS SUBSECUENTES; SE REFORMA LA FRACCIÓN IV Y SE ADICIONAN LAS FRACCIONES V, VI Y VII AL ARTÍCULO 47, RECORRIENDO EN SU ORDEN LAS SUBSECUENTES; TODOS ELLOS DE LA LEY DE AUSTERIDAD, TRANSPARENCIA EN REMUNERACIONES, PRESTACIONES Y EJERCICIO DE RECURSOS DE LA CIUDAD DE MÉXICO¨.]
+PRIMERO. Publíquese en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México y sus disposiciones serán aplicables en el proceso de elaboración y consecuente aprobación del Presupuesto de Egresos de la Ciudad de México a partir del Ejercicio Fiscal 2021.
