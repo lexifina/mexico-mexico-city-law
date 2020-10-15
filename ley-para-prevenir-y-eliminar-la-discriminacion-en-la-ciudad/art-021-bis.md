@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 14 DE OCTUBRE DE 2020)
+Artículo 21 bis.- Corresponde a los entes públicos, en el ámbito de sus competencias, promover las condiciones para que el derecho a la igualdad y la no discriminación de las personas y grupos de atención prioritaria se materialice.
+Los entes públicos de la Ciudad de México deberán eliminar aquellos obstáculos que limiten el ejercicio de los derechos humanos e impidan el pleno desarrollo de las personas, así como su efectiva participación en la vida política, económica, cultural y social de la Ciudad de México y promoverán la participación de todas las personas en la eliminación de dichos obstáculos.

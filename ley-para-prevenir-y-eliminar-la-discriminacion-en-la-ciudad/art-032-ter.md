@@ -1,0 +1,13 @@
+(ADICIONADO, G.O. 14 DE OCTUBRE DE 2020)
+Artículo 32 ter.- Los entes públicos, en el ámbito de sus competencias, llevarán a cabo, entre otras medidas positivas a favor de la igualdad y el trato digno de las personas que residen en instituciones de asistencia social, las siguientes:
+I. Establecer mecanismos para asegurar la protección física, mental y social de las personas que residen en instituciones de asistencia social, hasta lograr su incorporación a una vida plena y productiva o a reintegrarse a su vida familiar;
+II. Impulsar el fortalecimiento operativo de las organizaciones sociales que realicen labores de asistencia social, a través de la formación, la capacitación y el apoyo con recursos atendiendo la suficiencia presupuestal a fin de garantizar una atención integral y multidisciplinaria que favorezca el desarrollo físico, cognitivo, afectivo y social de las personas que atienden;
+III. Implementar normas, lineamientos, protocolos y códigos de conducta que garanticen el respeto de los derechos de las personas asistidas, así como la transparencia en el origen y destino de los recursos y en los criterios de asignación;
+IV. Generar modelos de atención, intervención y evaluación que permitan la estandarización y mejora de los servicios;
+V. Impulsar medidas para garantizar que las instituciones de asistencia social proporcionen un entorno seguro, adecuado, afectivo y libre de violencia, así como trato digno, cuidados y protección contra actos u omisiones que atenten contra su integridad personal;
+VI. Vigilar, supervisar y evaluar la prestación de servicios en condiciones adecuadas, de calidad y calidez por personal capacitado, especializado, calificado, apto y suficiente en dichas instituciones;
+VII. Brindar capacitación en derechos humanos, igualdad y no discriminación a las personas que laboran en dichas instituciones;
+VIII. Establecer mecanismos para garantizar el derecho de las personas asistidas a una alimentación adecuada, nutritiva, equilibrada, diaria, suficiente y de calidad;
+IX. Promover que dichas instituciones realicen actividades externas que permitan, a quienes residen en éstas, el contacto con su comunidad, el descanso y esparcimiento, así como la formación de espacios de participación y convivencia con sus familiares y personas cercanas;
+X. Verificar que las instituciones de asistencia social cuenten con espacios físicos acordes a los servicios que proporcionan, apegados al diseño universal y accesibilidad, así como con medidas de protección civil; y
+XI. Garantizar los derechos de todas las personas desde un enfoque interseccional considerando las obligaciones establecidas en este capítulo.

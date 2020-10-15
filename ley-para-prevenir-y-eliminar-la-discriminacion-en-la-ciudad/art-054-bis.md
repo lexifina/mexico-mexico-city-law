@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 14 DE OCTUBRE DE 2020)
+Artículo 54 bis.- A efecto de dar cumplimiento a lo previsto en el presente capítulo, el Consejo contará con un área encargada de conocer y dar atención a los procedimientos de queja y de reclamación interpuestos. Dicha área deberá estar contemplada en el Estatuto Orgánico del Consejo y gozará de las facultades que esta Ley señala.
+Si los hechos, acciones u omisiones discriminatorias o que se presuman como tales a las que se refiere esta Ley han sido materia de queja ante la Comisión de Derechos Humanos de la Ciudad de México, y ésta la admitió, el Consejo dejará de conocer de los mismos.
+En caso de concurrencia de actuaciones con el Consejo Nacional para Prevenir la Discriminación, el Consejo podrá solicitar a la instancia nacional la remisión de la queja para su tramitación a nivel local, o bien, en su caso, remitir las actuaciones a la instancia nacional para que ésta conozca de las mismas.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 14 DE OCTUBRE DE 2020)
+Artículo 64 ter.- Cuando se presenten dos o más quejas o reclamaciones que se refieran a los mismos hechos, actos u omisiones presuntamente discriminatorios, el Consejo, a su juicio, podrá acumularlas para su trámite correspondiente, cuando reúnan los requisitos de procedibilidad y proporcionen elementos relevantes al caso que se investiga, de conformidad con lo establecido en el Estatuto Orgánico y con previo conocimiento de la persona peticionaria.
