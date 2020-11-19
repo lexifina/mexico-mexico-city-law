@@ -1,0 +1,11 @@
+LEY DE ARCHIVOS DE LA CIUDAD DE MÉXICO
+Ley publicada en el Número 475 de la Gaceta Oficial de la Ciudad de México, el miércoles 18 de noviembre de 2020.
+DECRETO POR EL QUE SE ABROGA LA LEY DE ARCHIVOS DEL DISTRITO FEDERAL Y SE EXPIDE LA LEY DE ARCHIVOS DE LA CIUDAD DE MÉXICO
+DRA. CLAUDIA SHEINBAUM PARDO, Jefa de Gobierno de la Ciudad de México, a sus habitantes sabed.
+Que el H. Congreso de la Ciudad de México I Legislatura, se ha servido dirigirme el siguiente:
+D E C R E T O
+CONGRESO DE LA CIUDAD DE MÉXICO
+I LEGISLATURA
+EL CONGRESO DE LA CIUDAD DE MÉXICO, DECRETA:
+SE ABROGA LA LEY DE ARCHIVOS DEL DISTRITO FEDERAL Y SE EXPIDE LA LEY DE ARCHIVOS DE LA CIUDAD DE MÉXICO.
+DECRETO
