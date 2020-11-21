@@ -1,0 +1,6 @@
+G.O. 18 DE NOVIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA UN ARTÍCULO 23 BIS A LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- El presente Decreto entrará en vigor 180 días hábiles posteriores a su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- La implementación de los Módulos de Atención, Orientación y Contacto Ciudadano que prevé el presente Decreto deberán implementarse con cargo al presupuesto asignado a la Secretaría de la Contraloría General, haciendo uso del personal con el que cuenta actualmente y ayudándose de los mecanismos institucionales necesarios para que no se generen erogaciones adicionales.
+TERCERO.- Durante el periodo señalado en el Artículo Primero Transitorio del presente Decreto, para la determinación de la temporalidad de los Módulos referidos, la Secretaría deberá tomar en cuenta o, en su caso, elaborar un diagnóstico de las dependencias de la administración pública local por incurrir con más frecuencia en malas prácticas, (sic) requieran con mayor prioridad de la implementación de los Módulos a que se refiere el presente Decreto.
+CUARTO.- Remítase a la Jefatura de Gobierno para efectos de su publicación en la Gaceta Oficial de la Ciudad de México.
