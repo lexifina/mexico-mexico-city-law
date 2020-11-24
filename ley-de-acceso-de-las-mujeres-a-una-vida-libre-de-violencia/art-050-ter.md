@@ -1,2 +1,2 @@
-(REFORMADO [N. DE E. ADICIONADO], G.O. 14 DE ENERO DE 2011)
-Artículo 50 Ter. Los Refugios Especializados estarán a cargo de la Procuraduría General de Justicia del Distrito Federal, la cual deberá incluir en su anteproyecto de presupuesto de egresos del Distrito Federal de cada ejercicio fiscal los recursos necesarios para la operación de éstos.
+(REFORMADO, G.O. 23 DE NOVIEMBRE DE 2020)
+Artículo 50 Ter. Los Refugios Especializados estarán a cargo de la Fiscalía General de Justicia de la Ciudad de México, la cual deberá incluir en su anteproyecto de presupuesto de egresos de la Ciudad de México de cada ejercicio fiscal los recursos necesarios para su operación.
