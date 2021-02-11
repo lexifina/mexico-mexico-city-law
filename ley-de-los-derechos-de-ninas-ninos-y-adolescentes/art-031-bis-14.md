@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 10 DE FEBRERO DE 2021)
+Artículo 31 Bis 14. La Procuraduría de Protección, en Coordinación con el Sistema Nacional DIF, dispondrán las medidas necesarias a fin de establecer e implementar el procedimiento único de adopción al que se refiere la Ley General, que permita a los solicitantes que el trámite de adopción sea rápido, eficaz y transparente.

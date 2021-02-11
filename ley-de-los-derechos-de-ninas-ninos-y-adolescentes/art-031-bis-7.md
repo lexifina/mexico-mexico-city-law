@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 10 DE FEBRERO DE 2021)
+Artículo 31 Bis 7. Las personas solicitantes deberán acudir de forma personal a la Procuraduría de Protección para realizar el trámite de adopción.
