@@ -4,6 +4,7 @@ I. Proporcionar asesoría legal a las mujeres víctimas de violencia;
 II. Establecer un mecanismo de vinculación interinstitucional, para atender las denuncias de violencia contra las mujeres, recibidas a través de línea mujeres de LOCATEL, por parte de la propia víctima o cualquier otra persona;
 III. Disponer elementos de la policía de proximidad para atender y proteger a las víctimas de violencia;
 IV. Crear mecanismos de coordinación y colaboración con las dependencias encargadas de la seguridad pública que coadyuven en la ejecución de las medidas que garanticen la seguridad de las víctimas;
-V. Canalizar a la Dirección General de Igualdad y Diversidad Social, a las víctimas que tengan necesidad de ingresar a las Casas de Emergencia o Centros de Refugio; y
+(REFORMADA, G.O. 26 DE FEBRERO DE 2021)
+V. Contar, por lo menos, con una Casa de Emergencia con el objetivo de establecerse como el primer vínculo de proximidad con las mujeres víctimas de violencia o con las víctimas indirectas, así como canalizar ante la unidad administrativa correspondiente a las víctimas que tengan necesidad de ingresar a las Casas de Emergencia o Centros de Refugio;
 VI. Generar en el ámbito de su competencia, las acciones para el registro, procesamiento, clasificación y seguimiento de las atenciones brindadas a las mujeres y niñas víctimas de violencia, de acuerdo a lo establecido en los Lineamientos para la operación y funcionamiento de la Red de Información de Violencia contra las Mujeres y el Sistema para la Identificación y Atención del Riesgo de Violencia Feminicida para las dependencias, entidades y órganos político-administrativos de la Ciudad de México
 VII. Las demás que le atribuyan otros ordenamientos legales.
