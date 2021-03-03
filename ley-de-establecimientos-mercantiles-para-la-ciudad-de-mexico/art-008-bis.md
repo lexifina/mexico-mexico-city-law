@@ -1,3 +1,1 @@
-(ADICIONADO, G.O. 14 DE FEBRERO DE 2012)
-Artículo 8 Bis.- Las Secretarías de Gobierno, de Seguridad Pública y de Protección Civil, así como las Delegaciones y el Instituto integrarán el Consejo de Evaluación de Riesgos, que emitirá dictámenes técnicos para el funcionamiento de establecimientos mercantiles con giro de impacto zonal con un aforo superior a cien personas.
-Los establecimientos mercantiles que obtengan dictamen negativo, deberán subsanar las observaciones realizadas por el Consejo, en caso de no subsanarlas no podrán renovar su permiso y no podrán ingresar su Solicitud de Permiso al Sistema.
+Artículo 8 Bis.- (DEROGADO, G.O. 2 DE MARZO DE 2021)

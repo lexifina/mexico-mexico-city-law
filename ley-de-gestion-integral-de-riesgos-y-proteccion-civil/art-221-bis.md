@@ -1,0 +1,7 @@
+(ADICIONADO, G.O. 2 DE MARZO DE 2021)
+Artículo 221 BIS. La autoridad administrativa fundará y motivará su resolución, considerando para su individualización:
+I. Los daños que se hubieren producido o puedan producirse;
+II. El carácter intencional o no de la acción u omisión constitutiva de la infracción;
+III. La gravedad de la infracción;
+IV. La reincidencia del infractor; y,
+V. La capacidad económica del infractor.
