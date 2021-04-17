@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 16 DE ABRIL DE 2021)
+Artículo 10 Bis.- Corresponde a la persona titular de la Jefatura de Gobierno a través de la Secretaría, la celebración de convenios y acuerdos con dependencias de las distintas ramas y órdenes de gobierno tanto federal como local con el fin de diseñar, planear, coordinar, aplicar y fortalecer políticas, programas, proyectos y acciones de fomento a la lectura del libro y su conservación.
