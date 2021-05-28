@@ -15,15 +15,18 @@ g. Impedir y remitir ante la autoridad competente a los infractores que celebren
 Las disposiciones contenidas en esta fracción no sustituyen las facultades que sobre esta materia esta Ley otorga a otras entidades y dependencias de la administración pública del Distrito Federal.
 (ADICIONADO, G.O. 30 DE MARZO DE 2012)
 h) Realizar operativos en los mercados y establecimientos que se tengan identificados los cuales se dediquen a la venta de animales, a fin de detectar posibles anomalías en dichos centros y establecimientos.
-(NOTA: EL 15 DE MARZO DE 2022 EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL CONSIDERANDO SEXTO, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 7/2021, DECLARÓ LA INVALIDEZ DEL INCISO i) DE LA FRACCIÓN II DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 17 DE DICIEMBRE DE 2020, FECHA EN LA QUE ENTRÓ EN VIGOR DICHO PRECEPTO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
-(ADICIONADO [N. DE E. CON SUS FRACCIONES], G.O. 16 DE DICIEMBRE DE 2020)
-i) EN LOS CASOS QUE EXISTA FLAGRANCIA ESTARÁ JUSTIFICADO SU INGRESO A UN LUGAR CERRADO SIN ORDEN JUDICIAL, CUANDO:
-I. SEA NECESARIO PARA EVITAR LA COMISIÓN DE LOS DELITOS PREVISTOS EN LOS ARTÍCULOS 350 BIS Y 350 TER DEL CAPÍTULO IV "DELITOS COMETIDOS POR ACTOS DE MALTRATO O CRUELDAD EN CONTRA DE ANIMALES NO HUMANOS", DEL CÓDIGO PENAL PARA EL DISTRITO FEDERAL; O
-II. SE REALIZA CON CONSENTIMIENTO DE QUIEN SE ENCUENTRE FACULTADO PARA OTORGARLO.
-(ADICIONADO, G.O. 16 DE DICIEMBRE DE 2020)
-En los casos de la fracción II, se procederá en términos de lo previsto en el artículo 290 del Código Nacional de Procedimientos Penales.
+(ADICIONADO [N. DE E. CON SUS NUMERALES], G.O. 16 DE DICIEMBRE DE 2020)
+i) En los casos que exista flagrancia estará justificado su ingreso a un lugar cerrado sin orden judicial, cuando:
+(REFORMADO, G.O. 27 DE MAYO DE 2021)
+1. Sea necesario para evitar la comisión de los delitos previstos en los artículos 350 Bis y 350 Ter del Capítulo IV "Delitos cometidos por actos de maltrato o crueldad en contra de animales no humanos", del Código Penal para el Distrito Federal; o
+(REFORMADO, G.O. 27 DE MAYO DE 2021)
+2. Se realiza con consentimiento de quien se encuentre facultado para otorgarlo.
+(REFORMADO, G.O. 27 DE MAYO DE 2021)
+En los casos del numeral 2, se procederá en términos de lo previsto en el artículo 290 del Código Nacional de Procedimientos Penales.
 (ADICIONADO, G.O. 16 DE DICIEMBRE DE 2020)
 Los motivos que determinaron la intromisión sin orden judicial constarán detalladamente en el informe que al efecto se levante.
+(ADICIONADO, G.O. 27 DE MAYO DE 2021)
+j) Detener y remitir ante la autoridad competente a las personas probables infractoras que realicen y contribuyan en actos especificados en el artículo 25 de la presente ley.
 (ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
 III. Coadyuvar en el cumplimiento de las disposiciones de esta Ley;
 (REFORMADA, G.O. 18 DE JUNIO DE 2012)
