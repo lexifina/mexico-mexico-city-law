@@ -1,2 +1,2 @@
-(ADICIONADO, G.O. 7 DE DICIEMBRE DE 2017)
-Artículo 47 Bis.- La Secretaría de Ciencia, Tecnología e Innovación en conjunto con la Secretaría, implementarán las acciones necesarias para el correcto fortalecimiento a los comercios de barrio a través del uso y aplicación de herramientas tecnológicas, de gestión y capacitación, en el ámbito de sus competencias y con el objetivo de que éstas obtengan las condiciones de competitividad en el mercado.
+(REFORMADO, G.O. 9 DE JUNIO DE 2021)
+Artículo 47 Bis.- La Secretaría de Educación, Ciencia, Tecnología e Innovación en conjunto con la Secretaría, implementarán las acciones necesarias para el correcto fortalecimiento a los comercios de barrio a través del uso y aplicación de herramientas tecnológicas, de gestión y capacitación, en el ámbito de sus competencias y con el objetivo de que éstas obtengan las condiciones de competitividad en el mercado.

@@ -1,0 +1,5 @@
+G.O. 9 DE JUNIO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA LA FRACCIÓN XX DEL ARTÍCULO 13; LA FRACCIÓN XVIII DEL ARTÍCULO 58; LA FRACCIÓN XI Y XII DEL ARTÍCULO 89 Y SE ADICIONA: UN CAPÍTULO DÉCIMO NOVENO TITULADO "DERECHO DE ACCESO A LAS TECNOLOGÍAS DE LA INFORMACIÓN Y COMUNICACIÓN" QUE CONTIENE LOS ARTÍCULOS 88 BIS, 88 TER, 88 QUÁTER; Y, LA FRACCIÓN XIII AL ARTÍCULO 89 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El establecimiento de política de inclusión digital universal se realizará de acuerdo a las disposiciones reglamentarias y en su caso por las reglas de operación del programa emitidas por la Jefatura de Gobierno de la Ciudad de México, y se sujetarán a la disponibilidad presupuestaria con la que se cuente.
+TERCERO.- El primer informe a que hace referencia el segundo párrafo del artículo 88 Ter, deberá ser presentado al Congreso de la Ciudad de México al año siguiente de la entrada en vigor del presente Decreto.

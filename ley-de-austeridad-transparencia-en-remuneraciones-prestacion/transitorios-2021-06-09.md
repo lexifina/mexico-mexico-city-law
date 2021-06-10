@@ -1,0 +1,5 @@
+G.O. 9 DE JUNIO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN LOS ARTÍCULOS 2, FRACCIONES XXII, XXIII,XXXVIII, XLV, L, LI, LXVIII, LXXXII; 5; 7, 8; 9; 10; 15; 17; 23; 23 BIS; 27; 47, FRACCIONES XIV,XV,XX; 48; 52; 62; 70; 80; 83; 89; 90; 91; 113; 139; 151; 153; 154; 158; 169 Y 178, TODOS DE LA LEY DE AUSTERIDAD, TRANSPARENCIA EN REMUNERACIONES, PRESTACIONES Y EJERCICIO DE RECURSOS DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- Remítase a la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO.- La normatividad que derive de la Ley de Austeridad, Transparencia en Remuneraciones, Prestaciones y Ejercicio de Recursos de la Ciudad de México, y que haga referencia a Órganos de Gobierno y Órganos Autónomos, se entenderán realizadas al Poder Legislativo, Poder Judicial y Organismos Autónomos, respectivamente y en términos del presente Decreto.

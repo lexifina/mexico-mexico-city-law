@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 9 DE JUNIO DE 2021)
+Artículo 88 Bis. Niñas, niños y adolescentes gozan del derecho de acceso universal a las Tecnologías de la Información y Comunicación, así como a los servicios de radiodifusión y telecomunicaciones, incluido el de banda ancha e Internet.
