@@ -1,0 +1,6 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 114 Bis. En el protocolo digital, después de que todos los comparecientes hayan firmado la escritura con su Firma Electrónica para la Actuación Digital Notarial, el Notario la firmará con su Firma Electrónica Notarial y con ello quedará autorizada definitivamente.
+Si la escritura contiene varios actos jurídicos, los comparecientes manifestarán su voluntad por medio de su Firma Electrónica para la Actuación Digital Notarial, por cada uno de ellos y el Notario firmará con su Firma Electrónica Notarial para que con ello quede la escritura autorizada preventivamente por lo que se refiere a ese acto jurídico.
+Al conformarse la escritura con la Firma Electrónica para la Actuación Digital Notarial de todos los comparecientes, el Notario la firmará con su Firma Electrónica Notarial y con ello quedará autorizada definitivamente.
+Si alguno de los actos jurídicos del instrumento dejare de firmarse por los otorgantes, el Notario asentará la mención de "No pasó" solo respecto del acto no firmado, autorizando los demás.
+Por su naturaleza de constancia electrónica, no será necesario asentar la razón "ante mí" a medida que la escritura sea firmada con su Firma Electrónica para la Actuación Digital Notarial por las partes.

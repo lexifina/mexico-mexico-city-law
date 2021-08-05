@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 100 Sexies. La estructura del mensaje de datos que conformará el soporte digital del instrumento electrónico permitirá integrar o referir el texto del instrumento, sus adiciones, cambios, variaciones, razones, autorizaciones preventivas y definitivas, así como los documentos y elementos que conformen el apéndice electrónico, además de la Firma Electrónica para la Actuación Digital Notarial, la Firma Electrónica Notarial, las notas complementarias y otros elementos que lo integren; incluyendo fotografías, videos, audios, planos entre otros mensajes de datos.
+Este mensaje de datos será la base digital del instrumento público Notarial en términos de esta Ley.

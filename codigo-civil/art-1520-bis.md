@@ -1,0 +1,7 @@
+(NOTA: EL 8 DE AGOSTO DE 2023, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VI Y VII, ASÍ COMO EN LOS RESOLUTIVOS SEGUNDO Y TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 135/2021, DECLARÓ LA INVALIDEZ DE LAS PORCIONES NORMATIVAS DEL PÁRRAFO PRIMERO DE ESTE ARTÍCULO INDICADAS CON MAYÚSCULAS, LA CUAL SURTIRÁ SUS EFECTOS A LOS DOCE MESES SIGUIENTES A LA NOTIFICACIÓN DE ESTOS PUNTOS RESOLUTIVOS AL CONGRESO DE LA CIUDAD DE MÉXICO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA https://www.scjn.gob.mx/).
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+ARTICULO 1,520 Bis.- El testamento público abierto también podrá realizarse por medios electrónicos, siempre que el testador cuente con la posibilidad de comunicarse con el notario a través de un dispositivo electrónico y el notario pueda ver Y OÍR al testador, ASÍ COMO HABLAR CON ÉL de manera directa, simultánea y en tiempo real durante todo el acto del otorgamiento. Lo anterior se actualizará cuando el testador se encuentre en alguno de los siguientes supuestos:
+I. Ante peligro inminente de muerte;
+II. Sufra al momento una enfermedad grave o contagiosa;
+III. Haya sufrido lesiones que pongan en riesgo su vida; o
+IV. Se encuentre en un lugar al que, por una situación excepcional, no se pueda acceder en persona.

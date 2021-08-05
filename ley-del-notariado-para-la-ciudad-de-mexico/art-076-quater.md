@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 76 Quater. Los instrumentos y apéndices que integren el protocolo ordinario deberán constar además en Archivo Electrónico, reproducción digitalizada o cualquier otra tecnología autorizada por esta Ley.
+Los Notarios remitirán el Archivo Electrónico firmado con su Firma Electrónica Notarial al Colegio mediante el Sistema Informático, el cual lo almacenará y resguardará permanentemente en dispositivos magnéticos o cualquier otra tecnología que garantice su conservación.
+Sin perjuicio de lo anterior, el Colegio entregará, en los plazos establecidos en esta Ley, el Archivo Electrónico al Archivo a través de las plataformas que sean desarrolladas e implementadas para tal efecto por la Administración Pública, que garanticen la seguridad informática, trazabilidad y permanencia, a efecto de que el Archivo pueda expedir las copias certificadas o testimonios que correspondan.

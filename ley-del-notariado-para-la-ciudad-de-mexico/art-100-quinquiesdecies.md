@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 100 Quinquiesdecies. El Notario podrá actuar en el instrumento electrónico durante cinco años contados a partir de la certificación de cierre del Archivo del Libro de Extractos respectivo a que se refiere el artículo 100 Septiesdecies. Durante ese plazo, el propio Notario, su suplente, asociado o quien le sustituya, podrá autorizarlo, adicionar razones y notas complementarias, expedir copias certificadas y testimonios.
+Expirado el plazo señalado, y una vez que el Archivo reciba el Libro de Extractos conforme a lo señalado en el artículo 100 Noviesdecies, dichas atribuciones pasarán al Archivo.

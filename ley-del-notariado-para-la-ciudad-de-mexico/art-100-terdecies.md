@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 100 Terdecies. La parte utilizable del texto del instrumento electrónico deberá aprovecharse al máximo posible, no deberán dejarse espacios en blanco y las líneas que se impriman deberán estar a igual distancia unas de otras, salvo cuando se trate de la reproducción de documentos, la que podrá hacerse ya sea transcribiendo a renglón continuo o reproduciendo su imagen, incluyendo fotografías, planos y en general cualquier documento gráfico. Las demás características del formato las determinará el Colegio.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 100 Ter. El Colegio permitirá la interconexión a los Notarios que lo soliciten y cumplan con los procedimientos, requisitos técnicos y elementos de seguridad tecnológica suficientes para actuar en el entorno digital. Una vez acreditado lo anterior, el Colegio le otorgará las credenciales de acceso al Sistema Informático y a la Red Integral Notarial, lo que hará del conocimiento de la Autoridad Competente en un término de diez días hábiles, así como las actualizaciones de interconexión correspondientes.

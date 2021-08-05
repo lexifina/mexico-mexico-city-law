@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2021)
+Artículo 100 Quaterdecies. Las razones, menciones, certificaciones y demás notas que el Notario requiera adicionar a un instrumento electrónico después de haberse firmado electrónicamente por los comparecientes y autorizado preventiva o definitivamente, lo insertará mediante notas complementarias que firmará con su Firma Electrónica Notarial en el mensaje de datos vinculado.
