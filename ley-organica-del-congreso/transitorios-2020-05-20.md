@@ -1,0 +1,7 @@
+G.O. 20 DE MAYO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONAN LA FRACCIÓN XLV BIS AL ARTÍCULO 4; Y EL ARTÍCULO 5 BIS A LA LEY ORGÁNICA DEL CONGRESO DE LA CIUDAD DE MÉXICO, Y SE ADICIONA LA FRACCIÓN XLV BIS AL ARTÍCULO 2; Y SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 56, 57, 57 BIS, 57 TER Y 329, ASÍ COMO LAS DENOMINACIONES DEL TÍTULO CUARTO Y SU RESPECTIVO CAPÍTULO I Y SECCIÓN SEXTA, TODOS DEL REGLAMENTO DEL CONGRESO DE LA CIUDAD DE MÉXICO".]
+Primero. El Presente Decreto entrará en vigor al momento de aprobación por el Pleno del Congreso.
+Segundo. Publíquese en la Gaceta Oficial de la Ciudad de México y en el Diario Oficial de la Federación para su mayor difusión.
+Tercero. Comuníquese a la persona titular de la Oficialía Mayor para que, en coordinación de las demás Unidades Administrativas que correspondan, realicen de manera inmediata las medidas atinentes a efecto de otorgar condiciones para que puedan llevarse a cabo sesiones vía remota del Pleno, Mesa Directiva, Conferencia, Junta, Comisiones, Comités, Comisión Permanente o, en su caso, de las Unidades Administrativas, para cumplir con las obligaciones y disposiciones constitucionales, legales y reglamentarias.
+Cuarto. Aprobado el presente Decreto, la Junta emitirá el Acuerdo para establecer al menos dos medios remotos tecnológicos de comunicación como medios oficiales para ejercer sus funciones y atribuciones del Congreso.
+La Junta sesionará los días lunes de cada semana para acordar lo relativo a las sesiones virtuales.
