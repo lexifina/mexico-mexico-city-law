@@ -1,0 +1,7 @@
+G.O. 1 DE SEPTIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA UN CAPÍTULO XIV, DEL SISTEMA DE JUSTICIA DIGITAL ELECTORAL, AL TÍTULO SEGUNDO REGLAS COMUNES APLICABLES A LOS MEDIOS DE IMPUGNACIÓN, DE LA LEY PROCESAL ELECTORAL DE LA CIUDAD DE MÉXICO".]
+Primero.- Remitase a la persona titular de la Jefatura de Gobierno para su Promulgación y Publicación en la Gaceta Oficial de la Cuidad de México.
+Segundo.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+Tercero.- Se derogan todas aquellas disposiciones que contravengan el contenido del presente Decreto.
+Cuarto.- El Pleno del Tribunal Electoral de la Ciudad de México deberá emitir los lineamientos a que se refiere el artículo 101 Quáter, en los 90 días hábiles posteriores a la entrada en vigor del presente Decreto.
+Quinto.- El Pleno del Tribunal Electoral de la Ciudad de México deberá realizar las adecuaciones sin exceder sus presupuestos autorizados y cumpliendo con las metas y objetivos de sus programas operativos y de conformidad con el artículo 7 de la Ley de Austeridad, Transparencia en Remuneraciones, Prestaciones y Ejercicio de Recursos de la Ciudad de México; lo anterior bajo los principios de austeridad, generalidad, la sustentabilidad, honradez, proporcionalidad, equidad, efectividad, certidumbre, transparencia y rendición de cuentas.

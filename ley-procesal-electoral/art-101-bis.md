@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 1 DE SEPTIEMBRE DE 2021)
+Artículo 101 Bis. El Sistema de Justicia Digital Electoral es el conjunto de medios y recursos electrónicos, que permiten la tramitación y sustanciación de un proceso jurisdiccional competencia del Tribunal Electoral, con mayor eficiencia y eficacia, a fin de resolver las controversias que se sometan a su jurisdicción.
+Las controversias de las que conozca el Tribunal Electoral serán resueltas de conformidad con los principios de certeza, imparcialidad, objetividad, legalidad, probidad, uso de las tecnologías de la información y comunicación, salvaguardando en todo momento los derechos humanos de las personas justiciables.
