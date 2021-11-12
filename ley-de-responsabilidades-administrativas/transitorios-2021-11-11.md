@@ -1,0 +1,5 @@
+G.O. 11 DE NOVIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA EL ARTÍCULO NOVENO TRANSITORIO AL DECRETO POR EL QUE SE EXPIDE LA LEY DE AUSTERIDAD, TRANSPARENCIA EN REMUNERACIONES, PRESTACIONES Y EJERCICIO DE RECURSOS DE LA CIUDAD DE MÉXICO, SE ADICIONA UN ARTÍCULO 63-BIS A LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS DE LA CIUDAD DE MÉXICO Y SE ADICIONA UN CAPÍTULO XIV AL TÍTULO DÉCIMO OCTAVO DEL LIBRO SEGUNDO, UN ARTÍCULO 276-BIS Y UN ARTÍCULO 276-TER AL CÓDIGO PENAL PARA EL DISTRITO FEDERAL, PUBLICADO EN LA GACETA OFICIAL DE LA CIUDAD DE MÉXICO, NÚMERO 482 TOMO II, DE FECHA 31 DE DICIEMBRE DE 2018".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno para su debida promulgación y publicación en la Gaceta Oficial de la Ciudad de México;
+SEGUNDO. El presente Decreto entrará en vigor el día siguiente al de su publicación en la Gaceta Oficial de la Ciudad de México, y
+TERCERO. La Secretaría de Administración y Finanzas del Gobierno de la Ciudad de México deberá realizar las modificaciones pertinentes a las disposiciones relacionadas con el cierre del ejercicio presupuestal 2021.
