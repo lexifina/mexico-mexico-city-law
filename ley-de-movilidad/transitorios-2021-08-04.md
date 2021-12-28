@@ -4,6 +4,7 @@ Primero.- Remítase a la persona titular de la Jefatura de Gobierno para su prom
 Segundo.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
 Tercero.- La Persona titular de la Jefatura de Gobierno contará con un plazo de 180 días naturales, a partir de la entrada en vigor del presente Decreto, para reformar el Reglamento de la Ley de Movilidad de la Ciudad de México y demás lineamientos y disposiciones de carácter administrativo, conforme a las reformas aprobadas en el presente Decreto.
 Cuarto.- A efecto de que los permisionarios y concesionarios cumplan con lo previsto en los artículos 90 y 110, fracción XII, relativos a tener una póliza de seguro emitida por una Institución de Seguros, tendrán un plazo de 80 días hábiles contados a partir de la entrada en vigor del presente Decreto.
-Quinto.- Los trabajadores que forman parte del Órgano Regulador de Transporte, se seguirán rigiendo por el apartado A del artículo 123 de la Constitución Política de los Estados Unidos Mexicanos y de ninguna forma resultarán afectados en sus derechos laborales y de seguridad social.
+(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE DICIEMBRE DE 2021)
+Quinto.– Las personas trabajadoras que forman parte del Órgano Regulador de Transporte, se seguirán rigiendo por el apartado B del artículo 123 de la Constitución Política de los Estados Unidos Mexicanos y de ninguna forma resultarán afectados en sus derechos laborales y de seguridad social.
 Los recursos financieros, materiales, humanos, cargas, compromisos y bienes en general del Órgano Regulador de Transporte, sin más trámite o formalidad continúan formando parte de su patrimonio.
 Sexto.- Se derogan todas aquellas disposiciones que se opongan al presente decreto.

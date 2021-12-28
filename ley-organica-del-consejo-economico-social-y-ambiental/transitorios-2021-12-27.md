@@ -1,0 +1,4 @@
+G.O. 27 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL PÁRRAFO PRIMERO, ASÍ COMO LAS FRACCIONES I A LA V DEL APARTADO A; SE ADICIONA LA FRACCIÓN III, SE REFORMA LA FRACCIÓN I Y SE RECORREN LAS FRACCIONES SUBSECUENTES Y SE ADICIONAN LAS FRACCIONES XI Y XII DEL APARTADO B, TODO DEL ARTÍCULO 6° DE LA LEY ORGÁNICA DEL CONSEJO ECONÓMICO, SOCIAL Y AMBIENTAL DE LA CIUDAD DE MÉXICO".]
+PRIMERO. Remítase a la Jefatura de Gobierno para efectos de su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente a su publicación en la Gaceta Oficial de la Ciudad de México.
