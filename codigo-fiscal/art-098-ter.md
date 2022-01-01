@@ -2,8 +2,8 @@
 ARTICULO 98 TER.- Las personas físicas y morales tendrán asignado un "Teso Buzón Fiscal CDMX", mediante el cual podrán presentar promociones, solicitudes, avisos, o dar cumplimiento a requerimientos de la autoridad, a través de documentos digitales, así como realizar consultas sobre su situación fiscal; asimismo, las autoridades fiscales podrán realizar la notificación de cualquier acto o resolución administrativa que emitan, en documentos digitales, conforme a lo siguiente:
 (REFORMADA, G.O. 23 DE DICIEMBRE DE 2019)
 I. Los contribuyentes, para utilizar el "Teso Buzón Fiscal CDMX", deberán ingresar a la página de internet de la Secretaría cuya dirección electrónica es www.finanzas.cdmx.gob.mx y seleccionar la opción "Teso Buzón Fiscal CDMX".
-(REFORMADA, G.O. 31 DE DICIEMBRE DE 2018)
-II. Los actos administrativos que emitan las autoridades fiscales a través de medios electrónicos deberán contener por lo menos, los requisitos establecidos en el artículo 101 de este Código y serán considerados Documentos Electrónicos Oficiales de conformidad con lo establecido en el artículo 2, fracción XIV del presente Código.
+(REFORMADA, G.O. 30 DE DICIEMBRE DE 2021)
+II. Los actos administrativos que emitan las autoridades fiscales a través de medios electrónicos deberán contener por lo menos, los requisitos establecidos en el artículo 101 de este Código y serán considerados Documentos Electrónicos Oficiales de conformidad con lo establecido en el artículo 2, fracción XV del presente Código.
 (ADICIONADA, G.O. 22 DE DICIEMBRE DE 2014)
 III. Cuando los contribuyentes remitan un documento digital a las autoridades fiscales, a través del "Teso Buzón Fiscal CDMX" recibirán un acuse de recibo que contendrá sello digital.
 En este caso, el sello digital identificará al área que recibió el documento y se presumirá, salvo prueba en contrario, que el documento digital fue recibido en la hora y fecha que se consignen en el acuse de recibo.

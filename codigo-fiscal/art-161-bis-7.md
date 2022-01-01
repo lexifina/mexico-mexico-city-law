@@ -1,2 +1,2 @@
-(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REFORMADO EN SUS CUOTAS, G.O. 21 DE DICIEMBRE DE 2020)
-ARTICULO 161 BIS 7.- Tratándose de aeronaves nuevas, el impuesto será la cantidad que resulte de multiplicar el peso máximo, incluyendo la carga de la aeronave expresado en toneladas, por la cantidad de $12,877.00, para aeronaves de pistón, turbohélice y helicópteros, y por la cantidad de $13,869.00, para aeronaves de reacción.
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2011) (REFORMADO EN SUS CUOTAS, G.O. 30 DE DICIEMBRE DE 2021)
+ARTICULO 161 BIS 7.- Tratándose de aeronaves nuevas, el impuesto será la cantidad que resulte de multiplicar el peso máximo, incluyendo la carga de la aeronave expresado en toneladas, por la cantidad de $13,521.00, para aeronaves de pistón, turbohélice y helicópteros, y por la cantidad de $14,562.00, para aeronaves de reacción.

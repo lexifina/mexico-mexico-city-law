@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 30 DE DICIEMBRE DE 2021)
+ARTICULO 105 BIS.- La Secretaría podrá realizar invitación a los contribuyentes a efecto de que conozcan su situación fiscal en materia de contribuciones locales y en su caso aclaren datos ante las oficinas autorizadas o a través de los medios electrónicos que esta dependencia establezca.
+Una vez que el contribuyente esté informado de su situación fiscal podrá, en caso de que lo estime procedente, exhibir en el plazo que establezca la Secretaría, las documentales que considere necesarias para desvirtuar las irregularidades que motivaron la invitación, así como cubrir los adeudos correspondientes.
+No se considerará que las autoridades fiscales inician el ejercicio de sus facultades de comprobación, cuando se realicen las acciones a que se refiere este artículo, pudiendo, ejercerlas en cualquier momento.
