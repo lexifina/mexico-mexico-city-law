@@ -1,0 +1,5 @@
+G.O. 26 DE ENERO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONAN LAS FRACCIONES XLVII BIS AL ARTÍCULO 4, ASÍ COMO LA CXVIII BIS AL ARTÍCULO 13; SE ADICIONA LA FRACCIÓN XIX BIS, Y SE REFORMA LA FRACCIÓN XIX DEL ARTÍCULO 29; SE ADICIONA LA FRACCIÓN XXXI BIS AL PÁRRAFO PRIMERO Y SE REFORMAN LAS FRACCIONES XXXI DEL PÁRRAFO PRIMERO, ASÍ COMO LAS FRACCIONES I, II, III, IV Y V DEL PÁRRAFO SEGUNDO QUEDANDO COMO INCISOS A), B) C) D) Y E) RESPECTIVAMENTE, DEL ARTÍCULO 32; TODOS DE LA LEY ORGÁNICA DEL CONGRESO DE LA CIUDAD DE MÉXICO".]
+PRIMERO. El presente Decreto entrará en vigor, al momento de su aprobación por el Pleno del Congreso de la Ciudad de México.
+SEGUNDO. Remítase a la persona titular de la Jefatura de Gobierno, para su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. Dentro de los 180 días naturales siguientes a la entrada en vigor de la presente reforma, se publicarán las modificaciones al Reglamento del Congreso de la Ciudad de México, a efecto de armonizar su contenido al presente Decreto.
