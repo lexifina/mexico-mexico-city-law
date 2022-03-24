@@ -1,10 +1,15 @@
 (ADICIONADO, G.O. 26 DE NOVIEMBRE DE 2015)
 Artículo 62 Bis. Las autoridades emisoras y ejecutoras de las medidas de protección deberán observar los siguientes principios:
 I. Principio de protección: considerar de manera primordial la obligación de salvaguardar la vida, integridad, libertad y seguridad de las personas;
+(ADICIONADA, G.O. 23 DE MARZO DE 2022)
+I Bis. Principio de Buena fe: las autoridades, en todo momento, presumirán la buena fe de las víctimas en situación de riesgo o violencia y deberán creer en su narración de los hechos. Las personas servidoras públicas que intervengan con motivo del ejercicio de los derechos de las víctimas, no deberán revictimizarlas o hacerlas responsables de su situación. En todo momento deberán permitir el ejercicio efectivo de sus derechos.
 II. Principio de necesidad y proporcionalidad: las medidas de protección deben responder a las necesidades inmediatas y específicas de las víctimas, atendiendo a la situación de riesgo, peligro existente o a las consecuencias de los actos de violencia.
 III. Principio de confidencialidad: toda la información y actividad administrativa o jurisdiccional relacionada con el ámbito de protección de las personas, debe ser reservada para los fines de la investigación o del proceso respectivo.
 IV. Principio de oportunidad y eficacia: Las medidas deben ser otorgadas e implementadas de manera inmediata y durante el tiempo que garanticen su objetivo.
-V. Principio de accesibilidad: se deberá articular un procedimiento sencillo para garantizar la materialización de la protección inmediata a las víctimas de acuerdo a sus condiciones específicas, tomando en consideración el contexto de la violencia.
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.O. 23 DE MARZO DE 2022)
+V. Principio de accesibilidad: se deberá articular un procedimiento sencillo para garantizar la materialización de la protección inmediata a las víctimas de acuerdo con sus condiciones específicas, tomando en consideración el contexto de la violencia.
+(ADICIONADO, G.O. 23 DE MARZO DE 2022)
+Tratándose de mujeres y niñas indígenas, la información proporcionada deberá ser en su lengua, mediante un formato pertinente y culturalmente adecuado. En el caso de mujeres o niñas con discapacidad, este principio debe incluir la accesibilidad al entorno físico y también a las comunicaciones, considerando los diferentes tipos de necesidades para los diversos tipos de discapacidades reconocidas.
 VI. Principio de integralidad: El otorgamiento de la medida a favor de la victima deberá garantizar la salvaguarda de todos los derechos de las víctimas, considerando los distintos aspectos que se presentan en cada caso.
 VII. Principio de concentración: No se necesita una orden para cada medida, una sola orden de protección podrá concentrar el número de medidas necesarias para garantizar la seguridad y bienestar de la mujer en situación de violencia y en su caso de las víctimas indirectas.
 VIII. Principio pro persona: Para interpretar lo referente al otorgamiento de las medidas de protección, en caso de duda, con relación a la situación de violencia, se estará a lo más favorable para la víctima.
