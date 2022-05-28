@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 27 DE MAYO DE 2022)
+ARTÍCULO 232 BIS. A quién en perjuicio de la sociedad conyugal o patrimonio común generado durante el matrimonio o el concubinato, oculte, transfiera o adquiera a nombre de terceros bienes, sin autorización expresa de su cónyuge o concubina o concubino, se le aplicará sanción de uno a cinco años de prisión y hasta trescientas veces la Unidad de Medida y Actualización.
