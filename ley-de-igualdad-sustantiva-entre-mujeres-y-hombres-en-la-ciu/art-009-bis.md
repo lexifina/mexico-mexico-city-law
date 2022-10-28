@@ -2,8 +2,8 @@
 Artículo 9 Bis.- Corresponde a las personas titulares de las Alcaldías:
 (REFORMADA, G.O. 8 DE MARZO DE 2019)
 I. Implementar las acciones, políticas, programas, proyectos e instrumentos que garanticen la adopción de acciones afirmativas en las unidades administrativas de las alcaldías;
-(REFORMADA, G.O. 8 DE MARZO DE 2019)
-II. En coordinación con la persona Titular de la Jefatura de Gobierno de la Ciudad de México, implementar y fortalecer los mecanismos institucionales de promoción y cumplimiento de la política de igualdad sustantiva en la Ciudad de México, mediante la aplicación del principio de transversalidad, a través de la Secretaría de las Mujeres y de la Comisión de Derechos Humanos del Distrito Federal.
+(REFORMADA, G.O. 27 DE OCTUBRE DE 2022)
+II. En coordinación con la persona Titular de la Jefatura de Gobierno de la Ciudad de México, implementar y fortalecer los mecanismos institucionales de promoción y cumplimiento de la política de igualdad sustantiva en la Ciudad de México, mediante la aplicación del principio de transversalidad, a través de la Secretaría de las Mujeres y de la Comisión de Derechos Humanos de la Ciudad de México.
 (REFORMADA, G.O. 8 DE MARZO DE 2019)
 III. Evaluar la participación equilibrada entre mujeres y hombres, garantizando el principio de paridad de género, en los cargos públicos de las unidades administrativas de las Alcaldías; establecer vínculos de colaboración permanente con organismos públicos, privados y sociales, para la efectiva aplicación de la presente Ley;
 (REFORMADA, G.O. 8 DE MARZO DE 2019)
