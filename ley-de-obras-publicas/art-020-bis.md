@@ -1,2 +1,2 @@
-(ADICIONADO, G.O. 15 DE SEPTIEMBRE DE 2008)
-Artículo 20 Bis.- Las dependencias, órganos desconcentrados, delegaciones y entidades, podrán prever en los Contratos Multianuales los mecanismos y estructuras financieras que se requieran para garantizar el pago al contratista, en términos de lo dispuesto por el artículo 7 del Código Financiero del Distrito Federal.
+(REFORMADO, G.O. 30 DE NOVIEMBRE DE 2022)
+Artículo 20 Bis. Las dependencias, órganos desconcentrados, alcaldías y entidades podrán prever en los Contratos Multianuales los mecanismos y estructuras financieras que se requieran para garantizar el pago a la persona contratista, en términos de lo dispuesto por la Ley de Austeridad, Transparencia en Remuneraciones, Prestaciones y Ejercicio de Recursos de la Ciudad de México y demás normativa aplicable.
