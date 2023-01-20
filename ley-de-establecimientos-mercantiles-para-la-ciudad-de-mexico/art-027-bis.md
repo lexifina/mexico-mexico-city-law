@@ -1,5 +1,7 @@
 (ADICIONADO, G.O. 14 DE FEBRERO DE 2012)
 Artículo 27 Bis.- Son de impacto zonal los establecimientos mercantiles cuyo giro principal sea la realización de juegos con apuestas y sorteos, que cuenten con permiso de la Secretaría de Gobernación.
+(ADICIONADO, G.O. 19 DE ENERO DE 2023)
+Además, son considerados de impacto zonal: estadios, bares, cantinas, antros, discotecas, casinos, espacios de diversión nocturnos, cabarets, cervecerías, chelerías o peñas, así como establecimientos dedicados al entretenimiento para adultos y/o con bailes eróticos, y en general los distintos a bajo impacto o impacto vecinal.
 Estos establecimientos deberán cumplir con las obligaciones contenidas en el apartado A y en las fracciones I, III, IV, VI, IX y X del apartado B del Artículo 10, así como las del artículo 13 de esta Ley, y obtener el visto bueno de la Secretaría de Gobierno.
 Queda prohibida la entrada a menores de edad a este tipo de establecimientos mismos que no podrán ubicarse a menos de trescientos metros de centros educativos, ni en inmuebles que conforme a los Programas de Desarrollo Urbano del Distrito Federal tengan zonificación habitacional.
 (REFORMADO, G.O. 2 DE MARZO DE 2021)
