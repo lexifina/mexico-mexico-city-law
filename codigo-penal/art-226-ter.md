@@ -1,0 +1,6 @@
+(ADICIONADO, G.O. 1 DE MARZO DE 2023)
+ARTÍCULO 226 Ter. Se aumentarán hasta en una mitad las penas previstas en el artículo anterior, cuando la conducta se cometa:
+I. Aprovechando la confianza depositada en él o los autores;
+II. Por los dueños, dependientes, encargados o empleados de empresas o establecimientos mercantiles, en los lugares que presten sus servicios al público sobre los animales domésticos de huéspedes, clientes o usuarios;
+III. Por quien haya recibido el animal doméstico en tenencia; y
+IV. En perjuicio de una persona con discapacidad, menor de edad o de más de sesenta años de edad.
