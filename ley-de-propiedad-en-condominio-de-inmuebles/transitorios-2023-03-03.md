@@ -1,0 +1,4 @@
+G.O. 3 DE MARZO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONAN; UN TERCER PÁRRAFO AL ARTÍCULO 1, LA FRACCIÓN XI, ASÍ COMO UN PÁRRAFO FINAL AL ARTÍCULO 21; LA FRACCIÓN XX AL ARTÍCULO 53; SE REFORMAN EL SEGUNDO PÁRRAFO DEL ARTÍCULO 1; EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 21; EL PRIMER PÁRRAFO Y EL INCISO F) DEL ARTÍCULO 80 Y LAS FRACCIONES I, II, III, IV, VI, VII Y VIII, DEL ARTÍCULO 87, TODOS DE LA LEY DE PROPIEDAD EN CONDOMINIO DE INMUEBLES PARA EL DISTRITO FEDERAL".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
