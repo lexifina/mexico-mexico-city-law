@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
+Artículo 58 Decies.- Con la finalidad de extender hacia todos los sectores de la sociedad los beneficios de la investigación y desarrollo a las que se refiere este capítulo, las autoridades educativas y las instituciones de educación superior impulsarán, de manera permanente, acciones de difusión y divulgación del conocimiento, dando prioridad a la población escolar en todos los tipos y niveles educativos.

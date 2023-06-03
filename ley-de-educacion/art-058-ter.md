@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
+Artículo 58 Ter.- La Secretaría, en el ámbito de sus atribuciones y en coordinación con las autoridades competentes fortalecerán y apoyarán la generación, ejecución, difusión y divulgación de proyectos y resultados de investigación científica, humanística, tecnológica y de innovación, con la finalidad de generar propuestas de solución a los problemas y necesidades de la Ciudad, contribuir a su desarrollo económico y social, elevar el bienestar de la población y reducir las desigualdades.

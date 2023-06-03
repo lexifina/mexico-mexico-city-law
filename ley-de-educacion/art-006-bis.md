@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
+Artículo 6 Bis.- Toda niña, niño y adolescente tiene derecho al libre desarrollo de su personalidad. En los centros escolares, tanto públicos como particulares, se permitirá el uso de uniforme neutro. Podrán elegir libremente si desean usar pantalón o falda para asistir a clases. Asimismo, los centros escolares deberán abstenerse de imponer reglas que impliquen restricciones a los derechos del alumnado, motivadas por su apariencia física.

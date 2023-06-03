@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
+Artículo 58 Octies.- Las instituciones de educación superior públicas de la Ciudad podrán realizar investigación e innovación científica, humanística y tecnológica en asociación con otras instituciones, centros públicos de investigación, sectores social y privado, de acuerdo con su normativa interna. Asimismo, podrán constituir repositorios por disciplinas científicas, humanísticas, tecnológicas y de innovación, de acuerdo con los criterios que se deriven de las disposiciones legales en la materia.

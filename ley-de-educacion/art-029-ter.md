@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
+Artículo 29 Ter.- La asignación de recursos financieros a las universidades e instituciones públicas de educación superior se realizará con una visión de largo plazo; para tal efecto, las autoridades respectivas, en su ámbito de competencia, atenderán lo dispuesto en la Ley General de Educación Superior.
+Es obligatorio que en el Presupuesto de Egresos de la Ciudad de México se asignen los recursos que, con sujeción a las previsiones de ingreso y gasto públicos permitan el desarrollo de las funciones de la Universidad Autónoma de la Ciudad de México, la Universidad Rosario Castellanos y la Universidad de la Salud.
