@@ -1,0 +1,6 @@
+G.O. 15 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONA UN TERCER PÁRRAFO AL ARTÍCULO 96 Y UNA FRACCIÓN II BIS AL ARTÍCULO 126, AMBOS A LA LEY DEL SISTEMA DE SEGURIDAD CIUDADANA DE LA CIUDAD DE MÉXICO".]
+PRIMERO. Remítase a la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. La Secretaría de Seguridad Ciudadana de la Ciudad de México procurará que las y los elementos de dicha institución cuenten con una capacitación mínima en materia de primeros auxilios. Para tales efectos, deberá establecer los criterios o programas internos necesarios para dar cumplimiento de manera paulatina al presente Decreto, asimismo priorizará la instrucción a aquellos elementos policiales que por la naturaleza de sus funciones atiendan urgencias de la ciudadanía.
+CUARTO. La Secretaría de Seguridad Ciudadana de la Ciudad de México, deberá priorizar que la capacitación a que se refiere el presente decreto, sea paulatinamente a través de la Universidad del Policía o de su Dirección General del Escuadrón de Rescate y Urgencias Médicas, lo anterior a fin de eficientar los recursos económicos y administrativos.
