@@ -15,3 +15,7 @@ VIII. La víctima se haya encontrado en un estado de indefensión, entendiéndos
 A quien cometa feminicidio se le impondrán de treinta y cinco a setenta años de prisión.
 En caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
 Tratándose de las fracciones IV y V el sujeto activo perderá todos los derechos en relación con la víctima incluidos los de carácter sucesorio.
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2023)
+Además de las penas impuestas, quien cometa este delito, perderá la patria potestad, cuando tuviera derecho o la ejerciera respecto de quien la víctima tuviera la patria potestad, conforme lo dispuesto en la fracción X del artículo 444 del Código Civil para el Distrito Federal.
+(ADICIONADO, G.O. 4 DE AGOSTO DE 2023)
+Las autoridades ministeriales y judiciales en materia penal deberán dar aviso sobre los casos de feminicidio a las autoridades jurisdiccionales familiares y al Sistema para el Desarrollo Integral de la Familia de la Ciudad de México, a efecto de que determinen las medidas de protección correspondientes a la guarda, custodia y patria potestad, que garanticen el interés superior de la niñez de las hijas o hijos de la víctima.
