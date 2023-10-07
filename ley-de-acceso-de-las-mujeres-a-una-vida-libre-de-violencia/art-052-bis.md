@@ -1,2 +1,0 @@
-(REFORMADO [N. DE E. ADICIONADO], G.O. 14 DE ENERO DE 2011)
-Artículo 52 Bis. En todos los casos se garantizará que la estancia en las Casas de Emergencia, Centros de Refugio o Refugios Especializados sea voluntaria y se procurará que en la canalización a estos espacios la familia no sea separada.

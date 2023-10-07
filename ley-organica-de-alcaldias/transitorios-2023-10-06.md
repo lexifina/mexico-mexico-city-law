@@ -1,0 +1,4 @@
+G.O. 6 DE OCTUBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL SEGUNDO PÁRRAFO; SE ADICIONA UN TERCER PÁRRAFO Y LAS FRACCIONES I, II Y III, Y SE RECORRE EN SU ORDEN EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 18 DE LA LEY ORGÁNICA DEL PODER EJECUTIVO Y DE LA ADMINISTRACIÓN PÚBLICA DE LA CIUDAD DE MÉXICO. SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 72; Y SE ADICIONAN LAS FRACCIONES IV, V Y VI AL ARTÍCULO 72 DE LA LEY ORGÁNICA DE ALCALDÍAS DE LA CIUDAD DE MÉXICO".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno, para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrara´ en vigor el día siguiente al de su publicación en la Gaceta Oficial de la Ciudad de México.
