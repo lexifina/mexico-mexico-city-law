@@ -1,0 +1,9 @@
+(ADICIONADO, G.O. 6 DE OCTUBRE DE 2023)
+ARTÍCULO 346 BIS. Comete el delito de ecocidio quien dolosamente cause un daño grave al ambiente, por la emisión de contaminantes, la realización de actividades riesgosas o la afectación de recursos naturales de la Ciudad de México.
+Se impondrá una pena de cinco a doce años de prisión y una multa de 5,000 a 10,000 Unidades de Medida y Actualización vigente a quien:
+I. Provoque la destrucción, pérdida total o daño irreparable a un ecosistema que abarque una superficie de cuando menos diez hectáreas;
+II. Provoque daño a un ecosistema cuya afectación y sus impactos duren al menos cuatro meses;
+III. Provoque daño a un ecosistema donde habite o exista una especie endémica o en peligro de extinción; o
+IV. Cause la contaminación del agua y el suelo por vertidos químicos.
+Las penas anteriores aumentarán en un tercio cuando el ecocidio sea cometido en Áreas de Valor Ambiental y Áreas Naturales Protegidas competencia de la Ciudad de México.
+Además de las sanciones previstas en el presente artículo, quien cometa éste delito, estará obligado a la compensación y reparación integral del daño, con fundamento en lo establecido por el artículo 16 de la Constitución Política de la Ciudad de México.
