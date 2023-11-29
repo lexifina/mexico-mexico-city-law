@@ -1,0 +1,5 @@
+G.O. 28 DE NOVIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE MODIFICAN LAS FRACCIONES XII Y XIII, SE ADICIONA LA FRACCIÓN XIV DEL ARTÍCULO 2, SE ADICIONA LA FRACCIÓN XXVI BIS DEL ARTÍCULO 4, SE ADICIONA LA FRACCIÓN XVI BIS DEL ARTÍCULO 6, SE ADICIONA LA FRACCIÓN XL BIS DEL ARTÍCULO 7; TODOS DE LA LEY DE MITIGACIÓN Y ADAPTACIÓN AL CAMBIO CLIMÁTICO Y DESARROLLO SUSTENTABLE DE LA CIUDAD DE MÉXICO".]
+Primero. Remítase a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+Segundo. El presente Decreto entrará en vigor al siguiente día de su publicación en la Gaceta Oficial de la Ciudad de México.
+Tercero. La Secretaría del Medio Ambiente de la Ciudad de México tendrá un plazo de 180 días, contados a partir de la entrada en vigor del presente Decreto, para actualizar y armonizar la normatividad aplicable en materia de Mitigación y adaptación al Cambio Climático y Desarrollo Sustentable de la Ciudad de México.
