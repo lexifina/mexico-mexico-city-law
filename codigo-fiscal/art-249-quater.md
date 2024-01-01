@@ -1,3 +1,3 @@
-(ADICIONADO, G.O. 29 DE DICIEMBRE DE 2016) (REFORMADO PRIMER PÁRRAFO EN SU CUOTA, G.O. 27 DE DICIEMBRE DE 20212)
-ARTICULO 249 QUATER.- Por la expedición de la constancia administrativa que determine medidas, colindancias y superficie de un predio para corrección de su descripción en los documentos que acreditan la propiedad, se pagarán derechos conforme a una cuota de 1,965.00 por predio.
+(ADICIONADO, G.O. 29 DE DICIEMBRE DE 2016) (REFORMADO PRIMER PÁRRAFO EN SU CUOTA, G.O. 26 DE DICIEMBRE DE 2023)
+ARTICULO 249 QUATER.- Por la expedición de la constancia administrativa que determine medidas, colindancias y superficie de un predio para corrección de su descripción en los documentos que acreditan la propiedad, se pagarán derechos conforme a una cuota de $2,084.00 por predio.
 Asimismo, quedarán exentos del pago de los derechos previstos en este artículo, los bienes de dominio público de la Ciudad de México y los sujetos al régimen de dominio público de la Federación, previa declaratoria emitida por la Procuraduría Fiscal.
