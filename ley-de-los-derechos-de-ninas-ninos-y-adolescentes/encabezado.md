@@ -1,5 +1,4 @@
 LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DE LA CIUDAD DE MÉXICO
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN LA GACETA OFICIAL DEL 18 DE ENERO DE 2024.]
 Ley publicada en la Gaceta Oficial del Distrito Federal, el jueves 12 de noviembre de 2015.
 (Al margen superior un escudo que dice: CIUDAD DE MÉXICO.- Decidiendo Juntos)
 MIGUEL ÁNGEL MANCERA ESPINOSA, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:
