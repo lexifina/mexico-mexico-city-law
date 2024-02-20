@@ -5,7 +5,8 @@ FEMINICIDIO
 ARTÍCULO 148 BIS. Comete el delito de feminicidio quien, por razones de género, prive de la vida a una mujer.
 Existen razones de género cuando se presente cualquiera de los siguientes supuestos:
 I. La víctima presente signos de violencia sexual de cualquier tipo;
-II. A la víctima se le hayan infligido lesiones infamantes, degradantes o mutilaciones, previas o posteriores a la privación de la vida o actos de necrofilia;
+(REFORMADA, G.O. 19 DE FEBRERO DE 2024)
+II. A la víctima se le hayan infligido lesiones infamantes, degradantes, mutilaciones o ataques con ácido, sustancias químicas o corrosivas previas o posteriores a la privación de la vida o actos de necrofilia;
 III. Existan antecedentes o datos que establezcan que el sujeto activo ha cometido amenazas, acoso, violencia, lesiones o cualquier otro tipo de violencia en el ámbito familiar, laboral o escolar de la víctima;
 IV. Haya existido entre el activo y la víctima una relación sentimental, afectiva laboral, docente o de confianza;
 V. Exista, o bien, haya existido entre el activo y la víctima una relación de parentesco por consanguinidad o afinidad, de matrimonio, concubinato, sociedad de convivencia, noviazgo o cualquier otra relación de hecho o amistad; subordinación o superioridad.
