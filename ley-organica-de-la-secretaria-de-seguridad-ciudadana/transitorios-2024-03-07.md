@@ -1,0 +1,8 @@
+G.O. 7 DE MARZO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL PRIMER Y ÚLTIMO PÁRRAFO DEL ARTÍCULO 8; LA FRACCIÓN I Y ÚLTIMO PÁRRAFO DEL ARTÍCULO 9; Y SE ADICIONA UN CAPÍTULO VI BIS AL TÍTULO SEGUNDO, ASÍ COMO EL ARTÍCULO 14 BIS Y EL ARTÍCULO 14 TER, TODOS DE LA LEY ORGÁNICA DE LA SECRETARÍA DE SEGURIDAD CIUDADANA DE LA CIUDAD DE MÉXICO".]
+PRIMERO. Remítase el presente Decreto a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor el día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. El Gobierno de la Ciudad de México contará con 90 días hábiles, contados a partir de la entrada en vigor del presente Decreto, para realizar las modificaciones correspondientes al Reglamento Interior de la Secretaría de Seguridad Ciudadana de la Ciudad de México.
+CUARTO. La Secretaría de Seguridad Ciudadana de la Ciudad de México deberá adecuar su estructura orgánica y actualizar su Manual Administrativo en los plazos que establezcan los Lineamientos para el Registro de los Manuales Administrativos y Específicos de Operación de la Administración Pública de la Ciudad de México.
+QUINTO. La Secretaría de Seguridad Ciudadana de la Ciudad de México llevará a cabo las acciones y medidas administrativas y financieras correspondientes, a fin de fortalecer y garantizar la correcta operación de la Unidad Especializada de Género.
+SEXTO. La Secretaría de Seguridad Ciudadana de la Ciudad de México impulsará las acciones que permitan cumplir de manera gradual el principio constitucional de paridad de género, en la designación del personal de mandos.
