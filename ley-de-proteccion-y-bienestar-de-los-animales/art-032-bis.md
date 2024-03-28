@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO [N. DE E. REPUBLICADO], G.O. 26 DE DICIEMBRE DE 2023)
-Artículo 32 Bis. En caso de encontrar un perro, gato o un animal de compañía en la vía pública que pueda ser ubicado por el mecanismo de identificación, los Centros de Atención Canina y Felina o las Clínicas Veterinarias en las Demarcaciones Territoriales, o las análogas, verificarán si fue reportado como extraviado dentro de las primeras 24 horas.
+(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE MARZO DE 2024)
+Artículo 32 Bis. En caso de encontrar un perro, gato o un animal de compañía en la vía pública que pueda ser ubicado por el mecanismo de identificación, los Centros de Atención Canina y Felina o las Clínicas Veterinarias a cargo de las Alcaldías verificarán si fue reportado como extraviado dentro de las primeras 24 horas.
 (REFORMADO, G.O. 26 DE DICIEMBRE DE 2023)
 Si no ha transcurrido ese plazo, la autoridad que tenga bajo su resguardo al perro, gato o un animal de compañía no tradicional procederá a informar del paradero del mismo a quien aparezca como persona tutora responsable en el registro correspondiente.
 (REFORMADO, G.O. 26 DE DICIEMBRE DE 2023)

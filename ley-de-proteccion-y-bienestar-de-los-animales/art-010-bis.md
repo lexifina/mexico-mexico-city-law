@@ -10,13 +10,15 @@ c. Responder a situaciones de peligro por agresión animal;
 d. Impedir y remitir ante la autoridad competente a los infractores por la venta de animales en la vía pública;
 e. Coadyuvar en el rescate de animales silvestres y entregarlos a las autoridades competentes para su resguardo;
 (REFORMADO, G.O. 16 DE DICIEMBRE DE 2020)
-f) Retirar animales que participen en plantones o manifestaciones;
+f. Retirar animales que participen en plantones o manifestaciones;
 g. Impedir y remitir ante la autoridad competente a los infractores que celebren y promuevan peleas de perros.
-Las disposiciones contenidas en esta fracción no sustituyen las facultades que sobre esta materia esta Ley otorga a otras entidades y dependencias de la administración pública del Distrito Federal.
-(ADICIONADO, G.O. 30 DE MARZO DE 2012)
-h) Realizar operativos en los mercados y establecimientos que se tengan identificados los cuales se dediquen a la venta de animales, a fin de detectar posibles anomalías en dichos centros y establecimientos.
+(REFORMADO, G.O. 27 DE MARZO DE 2024)
+Las disposiciones contenidas en esta fracción no sustituyen las facultades que sobre esta materia esta Ley otorga a otras entidades y dependencias de la administración pública de la Ciudad de México.
+(REFORMADO, G.O. 27 DE MARZO DE 2024)
+h. Realizar operativos en los mercados y establecimientos que se tengan identificados, los cuales se dediquen a la venta, pensión y escuelas de adiestramiento, a fin de detectar posibles anomalías en dichos centros y establecimientos.
+Asimismo, podrán realizar operativos en escuelas de adiestramiento o lugares que brinden servicio de pensión para animales, a efecto de verificar que no existan violaciones a la presente Ley.
 (ADICIONADO [N. DE E. CON SUS NUMERALES], G.O. 16 DE DICIEMBRE DE 2020)
-i) En los casos que exista flagrancia estará justificado su ingreso a un lugar cerrado sin orden judicial, cuando:
+i. En los casos que exista flagrancia estará justificado su ingreso a un lugar cerrado sin orden judicial, cuando:
 (REFORMADO, G.O. 27 DE MAYO DE 2021)
 1. Sea necesario para evitar la comisión de los delitos previstos en los artículos 350 Bis y 350 Ter del Capítulo IV "Delitos cometidos por actos de maltrato o crueldad en contra de animales no humanos", del Código Penal para el Distrito Federal; o
 (REFORMADO, G.O. 27 DE MAYO DE 2021)
@@ -35,5 +37,5 @@ IV. Ordenar las medidas de seguridad relacionadas con las fracciones I y IV del 
 V. Promover la participación ciudadana a través de sus órganos de representación ciudadana e instrumentos de participación, a fin de difundir la cultura y la protección a los animales; y
 (ADICIONADA, G.O. 18 DE JUNIO DE 2012)
 VI. Las demás que esta Ley y demás ordenamientos jurídicos aplicables le confieran.
-(REFORMADA [N. DE E. ADICIONADA], G.O. 27 DE JUNIO DE 2017)
-VII. En caso de violaciones a la presente Ley por actos de maltrato o crueldad animal en los criaderos clandestinos o furtivos, lugares donde se comercie con animales e incluso cuando no teniendo actividad comercial exista la presencia de animales enfermos, lesionados o con grave grado de desnutrición, la Secretaría de Seguridad Publica, auxiliará a la Agencia en el resguardo temporal de los animales que la Agencia determine asegurar.
+(REFORMADA, G.O. 27 DE MARZO DE 2024)
+VII. En caso de violaciones a la presente Ley por actos de maltrato o crueldad animal en los criaderos clandestinos o furtivos, lugares donde se comercie con animales e incluso cuando no teniendo actividad comercial exista la presencia de animales enfermos, lesionados o con grave grado de desnutrición, la Secretaría de Seguridad Ciudadana auxiliará a la Agencia en el resguardo temporal de los animales que la Agencia determine asegurar.

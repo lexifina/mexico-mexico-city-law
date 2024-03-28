@@ -1,5 +1,5 @@
-(REFORMADO [N. DE E. ADICIONADO], G.O. 2 DE NOVIEMBRE DE 2012)
-Artículo 24 Bis. Toda persona que ejecute conductas de crueldad, maltrato, daño o tortura en contra de un animal está obligada a la reparación del daño en los términos establecidos en el Código Civil y Código Penal, ambos para el Distrito Federal.
+(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE MARZO DE 2024)
+Artículo 24 Bis. Toda persona que ejecute conductas de crueldad, maltrato, daño o tortura en contra de un animal está obligada a la reparación del daño en los términos establecidos en el Código Civil, Código Penal y leyes aplicables a la materia. Dicha reparación del daño, de ser el caso, incluirá la atención médica veterinaria, medicamentos, tratamientos y/o intervención quirúrgica, rehabilitación y demás necesidades que se lleguen a presentar en favor de los animales.
 (REFORMADO, G.O. 1 DE MARZO DE 2023)
 Dicha reparación del daño, también consistirá en atención médica veterinaria, medicamentos, tratamientos o intervención quirúrgica.
 (ADICIONADO, G.O. 1 DE MARZO DE 2023)
