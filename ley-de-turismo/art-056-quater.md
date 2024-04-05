@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 4 DE ABRIL DE 2024)
+Artículo 56 Quáter. La Secretaría de Pueblos y Barrios Originarios y Comunidades Indígenas Residentes, fomentará y promoverá las actividades del Turismo Alternativo a través de programas y convenios en la materia. Asimismo, elaborará programas de concienciación dirigida a las comunidades rurales y pueblos originarios involucrados, los Prestadores de Servicios Turísticos y los visitantes a las áreas en donde se realicen actividades de Turismo Alternativo, de manera que se evite la afectación al Patrimonio Turístico.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 4 DE ABRIL DE 2024)
+Artículo 1 Bis. El turismo es una actividad estratégica y prioritaria en la Ciudad de México que bajo el enfoque social y económico genera desarrollo individual y colectivo, a partir de una visión integral, sostenible, incluyente y de responsabilidad compartida, capaz de contribuir significativamente en la erradicación de la pobreza y en la conformación de una ciudad más justa, igualitaria y de derechos.
