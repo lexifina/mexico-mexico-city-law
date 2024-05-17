@@ -1,0 +1,6 @@
+G.O. 16 DE MAYO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL NUMERAL 2 DEL APARTADO E, EL NUMERAL 2 DEL APARTADO F Y SE ADICIONA EL NUMERAL 4 E INCISO F) DEL NUMERAL 2 DEL APARTADO F, TODOS AL ARTÍCULO 9; SE REFORMA EL NUMERAL 2, EL NUMERAL 3 EN SUS INCISOS F), G), E I), Y LOS NUMERALES 4 Y 5 TODOS DEL APARTADO B, DEL ARTÍCULO 16, DE LA CONSTITUCIÓN POLÍTICA DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial del Gobierno de la Ciudad de México.
+SEGUNDO.- En un plazo no mayor a 90 días a partir de la entrada en vigor del presente decreto, la Secretaría del Medio Ambiente del Gobierno de la Ciudad de México, coordinará los trabajos de investigación y gestiones necesarias para la implementación de la presente reforma y formulará las propuestas de adecuaciones normativas y programas necesarios para dicho propósito.
+TERCERO.- En un plazo no mayor a 180 días, el Congreso de la Ciudad de México deberá expedir las leyes y reformas a la legislación secundaria para la plena aplicación de la reforma.
+CUARTO.- Comuníquese el presente Dictamen, a la Presidencia de la Mesa Directiva y a la Coordinación de Servicios Parlamentarios, para los efectos a que se refieren los artículos 103, 104, 105 y 106 del Reglamento del Congreso de la Ciudad de México.
