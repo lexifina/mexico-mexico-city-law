@@ -1,0 +1,4 @@
+G.O. 27 DE JUNIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN LOS ARTÍCULOS 323 SÉPTIMUS; SE REFORMAN LAS FRACCIONES IX Y X, Y SE ADICIONA UNA FRACCIÓN XI AL ARTÍCULO 444; AMBOS DEL CÓDIGO CIVIL PARA EL DISTRITO FEDERAL. SE REFORMA LA NUMERACIÓN DEL CAPÍTULO ÚNICO, COMO CAPÍTULO I DEL TÍTULO OCTAVO DEL LIBRO SEGUNDO; SE ADICIONA UN CAPÍTULO II AL TÍTULO OCTAVO DEL LIBRO SEGUNDO; Y SE ADICIONA UN ARTÍCULO 201 TER AL CÓDIGO PENAL PARA EL DISTRITO FEDERAL".]
+PRIMERO. Remítase el presente decreto a la persona titular de la Jefatura de Gobierno, para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
