@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 28 DE JUNIO DE 2024)
+ARTICULO 301 Bis.- Los alimentos son de orden público, interés social y de observancia general en la Ciudad de México, por lo que el juez o jueza tienen la obligación de garantizar el derecho de las personas a recibirlos; tomando en consideración el interés superior de la infancia y adolescencia, así como las necesidades inmediatas de las y los acreedores alimentistas.

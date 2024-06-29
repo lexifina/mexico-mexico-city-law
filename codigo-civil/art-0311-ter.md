@@ -1,2 +1,2 @@
-(ADICIONADO, G.O. 25 DE MAYO DE 2000)
-ARTICULO 311 Ter.- Cuando no sean comprobables el salario o los ingresos del deudor alimentario, el Juez de lo Familiar resolverá con base en la capacidad económica y nivel de vida que el deudor y sus acreedores alimentarios hayan llevado en los dos últimos años.
+(REFORMADO, G.O. 28 DE JUNIO DE 2024)
+ARTICULO 311 Ter.- Cuando no sean comprobables el salario o los ingresos de la persona deudora alimentaria, la Jueza o Juez de lo Familiar resolverá con base en la capacidad económica y nivel de vida que las y los acreedores alimentarios y la o el deudor haya llevado en los últimos dos años.
