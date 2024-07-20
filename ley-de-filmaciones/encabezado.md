@@ -1,4 +1,4 @@
-LEY DE FILMACIONES DEL DISTRITO FEDERAL
+LEY DE FILMACIONES DE LA CIUDAD DE MÉXICO
 Ley publicada en la Gaceta Oficial del Distrito Federal, el martes 17 de febrero de 2009.
 DECRETO POR EL QUE SE EXPIDE LA LEY DE FILMACIONES DEL DISTRITO FEDERAL.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)

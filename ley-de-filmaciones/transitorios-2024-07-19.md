@@ -1,0 +1,4 @@
+G.O. 19 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE MODIFICA LA DENOMINACIÓN DE LEY, LAS FRACCIONES I, II, III, IV, V Y VI ASÍ COMO LOS INCISOS C Y D DE LA FRACCIÓN VI Y EL PÁRRAFO SEGUNDO DEL ARTÍCULO 14; LOS PÁRRAFOS SEGUNDO, TERCERO, CUARTO Y QUINTO DEL ARTÍCULO 15; LAS FRACCIONES III, IV, VIII, XVII Y XXI DEL ARTÍCULO 19; SE ADICIONAN LAS FRACCIONES I BIS Y IV BIS AL ARTÍCULO 4 Y UNA FRACCIÓN XXI BIS AL ARTÍCULO 19 Y SE DEROGAN LOS INCISOS F Y G DE LA FRACCIÓN VI DEL ARTÍCULO 14, DE LA LEY DE FILMACIONES DEL DISTRITO FEDERAL".]
+Primero. Remítase a la persona titular de la Jefatura de Gobierno de la Ciudad de México, para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+Segundo. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
