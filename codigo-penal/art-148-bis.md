@@ -3,8 +3,8 @@ CAPITULO VI
 FEMINICIDIO
 (REFORMADO, G.O. 1 DE AGOSTO DE 2019)
 ARTÍCULO 148 BIS. Comete el delito de feminicidio quien, por razones de género, prive de la vida a una mujer.
-(REFORMADO [N. DE E. ADICIONADO], G.O. 27 DE JUNIO DE 2024)
-Para efectos de este artículo, el término mujer incluye a todas las mujeres a lo largo de su ciclo de vida, así como a todas las personas de género femenino.
+(REFORMADO, G.O. 23 DE AGOSTO DE 2024)
+Para efectos de este artículo, el término mujer incluye a todas las mujeres a lo largo de su ciclo de vida.
 (REFORMADO [N. DE E. REPUBLICADO], G.O. 27 DE JUNIO DE 2024)
 Existen razones de género cuando se presente cualquiera de los siguientes supuestos:
 I. La víctima presente signos de violencia sexual de cualquier tipo;
@@ -22,13 +22,14 @@ VI. El cuerpo o restos de la víctima sean expuestos, arrojados, depositados, en
 VII. La víctima haya sido incomunicada o desaparecida, cualquiera que sea el tiempo previo a su fallecimiento;
 (REFORMADA, G.O. 27 DE JUNIO DE 2024)
 VIII. La víctima se haya encontrado en un estado de indefensión, entendiéndose éste como la situación de desprotección real o incapacidad que imposibilite o inhiba su defensa, como la edad; la discapacidad; la situación de embarazo; la dependencia por cuidados, formal o de hecho; las amenazas; la somnolencia o la alteración del estado de conciencia, voluntaria o involuntaria, causada por el consumo de alcohol, fármacos o drogas; por la dificultad de comunicación para recibir auxilio, por razón de la distancia a un lugar habitado o por que exista algún impedimento físico o material para solicitar el auxilio, o
-(REFORMADA [N. DE E. ADICIONADA], G.O. 27 DE JUNIO DE 2024)
-IX. Que la privación de la vida sea motivada por prejuicios o estereotipos relacionados a la orientación sexual, identidad o expresión de género, o las características sexuales de la víctima.
+(REFORMADA, G.O. 23 DE AGOSTO DE 2024)
+IX. Que la privación de la vida sea motivada por prejuicios o estereotipos relacionados a la orientación sexual o expresión de género, o las características sexuales de la víctima.
 (REFORMADO [N. DE E. REPUBLICADO], G.O. 27 DE JUNIO DE 2024)
 A quien cometa feminicidio se le impondrán de treinta y cinco a setenta años de prisión.
 (REFORMADO [N. DE E. ADICIONADO CON SUS INCISOS], G.O. 27 DE JUNIO DE 2024)
 La pena se agravará hasta en una tercera parte de su mínimo y máximo, cuando concurra cualquiera de las siguientes circunstancias:
-a) Cuando el delito sea cometido en contextos de explotación sexual o trata de personas en agravio de la víctima;
+(REFORMADO, G.O. 23 DE AGOSTO DE 2024)
+a) Cuando el delito sea cometido en el contexto del trabajo sexual o se haya ejercido algún acto de explotación sexual o trata de personas en agravio de la víctima;
 b) Cuando el delito sea cometido por dos o más personas;
 c) Cuando el delito sea cometido en presencia de una o más personas con quienes la víctima tuviere un vínculo de parentesco, afectivo o de confianza;
 d) Cuando el sujeto activo, con motivo de su cargo, encargo o relación de confianza, tenga la obligación o el deber de cuidado sobre la víctima;
