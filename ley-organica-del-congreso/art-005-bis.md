@@ -4,5 +4,5 @@ Artículo 5 Bis. En casos en que se ponga a la sociedad en grave peligro o confl
 Cuando no se actualicen los supuestos referidos en el párrafo anterior, el Congreso podrá, sesionar vía remota, previo acuerdo de la Junta, aprobado por el Pleno, conforme a lo previsto en esta Ley y el Reglamento.
 (REFORMADO, G.O. 8 DE DICIEMBRE DE 2023)
 Para los efectos de la Sesión vía remota del Pleno quedan exceptuados los temas relacionados con reformas a la Constitución Local, las reformas correspondientes a las leyes de carácter constitucional, los nombramientos de las personas servidoras públicas correspondientes a los poderes Ejecutivo y Judicial, así como los correspondientes a los organismos que la Constitución Local les otorga autonomía y aquellos asuntos en los que se requiera mayoría calificada conforme a esta Ley y el Reglamento.
-(REFORMADO [N. DE E. REUBICADO], G.O. 8 DE DICIEMBRE DE 2023)
-El orden del día correspondiente a la Sesión vía remota del Pleno será propuesto por las dos terceras partes de los integrantes de la Conferencia.
+(ADICIONADO [N. DE E. REFORMADO], G.O. 20 DE SEPTIEMBRE DE 2024)
+Además de lo dispuesto en los párrafos anteriores, la persona que represente a la Diputación Migrante, podrá asistir y participar, en las sesiones en Pleno, la Comisión Permanente, en Comisiones o Comités, a través de la vía remota, garantizándole la identificación, registro de asistencia, participación y voto, así como el acceso y disponibilidad de la documentación necesaria.
