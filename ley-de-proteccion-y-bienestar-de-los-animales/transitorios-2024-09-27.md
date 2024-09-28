@@ -1,0 +1,5 @@
+G.O. 27 DE SEPTIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN LAS FRACCIONES VI Y XIV DEL ARTÍCULO 2; LAS FRACCIONES IV, VIII, X BIS, XVII BIS Y XXXV BIS DEL ARTÍCULO 4; EL ARTÍCULO 34; EL ARTÍCULO 34 BIS; EL ARTÍCULO 34 TER; EL PÁRRAFO PRIMERO, LAS FRACCIONES I, IV, V, VI, VIII, IX, XI Y ÚLTIMO PÁRRAFO DEL ARTÍCULO 34 QUÁTER; EL PÁRRAFO PRIMERO DEL ARTÍCULO 35 Y EL INCISO B) DE LA FRACCIÓN III DEL ARTÍCULO 65; ASIMISMO, SE ADICIONAN LAS FRACCIONES IV BIS Y XXXV TER AL ARTÍCULO 4 Y LAS FRACCIONES XXVI BIS Y XXVI TER AL ARTÍCULO 73; Y, SE DEROGA EL ARTÍCULO 34 QUINTUS, TODO ELLO DE LA LEY DE PROTECCIÓN Y BIENESTAR DE LOS ANIMALES DE LA CIUDAD DE MÉXICO".]
+PRIMERO.- Remítase a la persona titular de la Jefatura de Gobierno, para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO.- Dentro de los 90 días hábiles siguientes a la publicación del presente decreto, el Gobierno de la Ciudad de México realizará la actualización y armonización reglamentaria correspondiente.
