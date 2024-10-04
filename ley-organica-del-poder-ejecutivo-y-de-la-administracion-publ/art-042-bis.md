@@ -1,0 +1,17 @@
+(ADICIONADO, G.O. 3 DE OCTUBRE DE 2024)
+Artículo 42 BIS. A la Secretaría de Vivienda, le corresponde el despacho de la materia de vivienda, así como planear, coordinar el diseño, la elaboración, la promoción, la ejecución, la supervisión y la evaluación de la política y los programas de vivienda aplicables, con la participación de los sectores público, privado, social, colegios, académicos, entre otros.
+Específicamente cuenta con las siguientes atribuciones:
+I. Proponer la integración, coordinación, análisis y ejecución de la política de vivienda de la Ciudad de México;
+II. Contribuir con la Administración Pública en la proyección, diseño y ejecución del Programa de Vivienda de la Ciudad de México, incluyendo a los que formen parte de comunidades indígenas, personas jóvenes, personas mayores, madres solteras, mujeres jefas de familia y personas con discapacidad, o que habitan en sitios de alto riesgo, así como a población asentada en campamentos o en inmuebles con valor patrimonial, incentivando al mismo tiempo la producción social de vivienda en favor de la población de escasos recursos económicos de la Ciudad de México, así como en la coordinación con los organismos de vivienda de la Ciudad de México;
+III. Fomentar la creación, uso, mejoramiento y modificación de los espacios urbanos requeridos para el Programa de Vivienda, así como del Programa General de Desarrollo Urbano de la Ciudad de México;
+IV. Formar parte de la Comisión de Evaluación de Asentamientos Humanos Irregulares y/u otros órganos colegiados que le competan;
+V. Celebrar los actos jurídicos, contratos y convenios, que sean necesarios para el cumplimiento de su objeto, en coordinación con la Consejería Jurídica y de Servicios Legales;
+VI. Coordinar con la Secretaría de Planeación, Ordenamiento Territorial y Coordinación Metropolitana para la promoción y apoyo de las acciones de regularización de la tenencia de la tierra en la Ciudad de México, así como en los casos que dicha regularización, requiera la tramitación ante instancias judiciales de procedimientos específicos;
+VII. Crear en coordinación con la Agencia de Innovación Digital, sistemas informáticos para la simplificación administrativa, transparencia y combate a la corrupción en las solicitudes que realice la ciudadanía para la adquisición y entrega de vivienda social;
+VIII. Establecer programas que fomenten el derecho a la vivienda asequible a la población de la Ciudad de México, priorizando a las personas de menores ingresos;
+IX. Coordinar las acciones que las Dependencias, Entidades, Órganos Desconcentrados y/o Alcaldías, realicen con motivo de la demolición, rehabilitación, y/o reconstrucción de infraestructura, equipamiento y vivienda, afectados por el sismo a que se refiere la Ley para la Reconstrucción Integral de la Ciudad de México.
+X. Coordinar el seguimiento de las acciones en materia de reconstrucción que se realicen para la atención de las personas damnificadas por el sismo;
+XI. Coordinar las acciones que adopten otros organismos públicos relacionados con la vivienda de interés social y popular;
+XII. Procurar el cumplimiento de la Ley de Propiedad en Condominios de Inmuebles del Distrito Federal y participar en la aplicación de mecanismos de participación ciudadana y convivencia armónica entre vecinos;
+XIII. Proponer a la persona titular de la Jefatura de Gobierno, que emita la declaratoria correspondiente de expropiación en los términos de las disposiciones jurídicas aplicables; y
+XIV. Las demás que le confieran otras disposiciones jurídicas aplicables.

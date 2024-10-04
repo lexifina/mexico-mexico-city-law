@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 3 DE OCTUBRE DE 2024)
+Artículo 36 Bis.- Con la finalidad de dotar de certeza jurídica la ocupación de los inmuebles en los programas de vivienda de carácter popular, social y en arrendamiento, se establecerá expresamente que no podrán ser destinados para fines diversos al objetivo del programa; entre otros, no podrán ser utilizados para los esquemas de estancia turística eventual previstos en la Ley de Turismo de la Ciudad de México.
+La restricción prevista en el párrafo anterior, también será aplicable para el caso de vivienda de interés social, popular y sustentable, construida bajo la aplicación de la Norma de Ordenación Número 26.
