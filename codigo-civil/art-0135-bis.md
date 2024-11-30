@@ -1,6 +1,10 @@
+(REFORMADO PRIMER PÁRRAFO, G.O. 29 DE NOVIEMBRE DE 2024)
+ARTICULO 135 BIS. - Pueden pedir el levantamiento de una nueva acta de nacimiento para el reconocimiento de la identidad de género, previa la cancelación correspondiente de su acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género, excepto que se trate de orden judicial o ministerial.
 (REFORMADO, G.O. 5 DE FEBRERO DE 2015)
-ARTICULO 135 BIS.- Pueden pedir el levantamiento de una nueva acta de nacimiento para el reconocimiento de la identidad de género, previa la anotación correspondiente en su acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género.
 El reconocimiento respectivo se llevará a cabo ante las instancias y las autoridades correspondientes del Registro Civil del Distrito Federal cumpliendo todas las formalidades que exige el Reglamento del Registro Civil del Distrito Federal.
+(REFORMADO, G.O. 5 DE FEBRERO DE 2015)
 Se entenderá por identidad de género la convicción personal e interna, tal como cada persona se percibe así misma, la cual puede corresponder o no, al sexo asignado en el acta primigenia. En ningún caso será requisito acreditar intervención quirúrgica alguna, terapias u otro diagnóstico y/o procedimiento para el reconocimiento de la identidad de género.
+(REFORMADO, G.O. 5 DE FEBRERO DE 2015)
 Los efectos de la nueva acta de nacimiento para identidad de género realizados, serán oponibles a terceros desde de su levantamiento.
+(REFORMADO, G.O. 5 DE FEBRERO DE 2015)
 Los derechos y obligaciones contraídas con anterioridad al proceso administrativo para el reconocimiento de identidad de género y a la expedición de la nueva acta, no se modificarán ni se extinguen con la nueva identidad jurídica de la persona; incluidos los provenientes de las relaciones propias del derecho de familia en todos sus órdenes y grados, los que se mantendrán inmodificables.

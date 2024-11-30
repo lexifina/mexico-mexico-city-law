@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 29 DE NOVIEMBRE DE 2024)
+Artículo 107 Bis-5. Las Unidades de Gestión Judicial en materia Civil y Familiar apoyarán a las personas Magistradas y a las personas Juzgadoras en dichas materias, conforme a la estructura, organización y facultades específicas que defina el Consejo de la Judicatura a través de Acuerdos Generales, con personal tanto de carrera judicial como administrativo.

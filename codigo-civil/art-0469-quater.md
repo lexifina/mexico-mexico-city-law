@@ -1,5 +1,1 @@
-(ADICIONADO, G.O. 15 DE MAYO DE 2007)
-ARTICULO 469 Quáter.- En la escritura pública donde se haga constar la designación, se podrán contener expresamente las facultades u obligaciones a las que deberá sujetarse la administración del tutor, dentro de las cuales serán mínimo las siguientes:
-I. Que el tutor tome decisiones convenientes sobre el tratamiento médico y el cuidado de la salud del tutelado, y
-II. Establecer que el tutor tendrá derecho a una retribución en los términos de este código.
-El Juez de lo Familiar, a petición del tutor o del curador, y en caso de no existir éstos, los sustitutos nombrados por el juez tomando en cuenta la opinión del Consejo de Tutelas, podrá modificar las reglas establecidas si las circunstancias o condiciones originalmente tomadas en cuenta por la persona capaz en su designación, han variado al grado que perjudiquen la persona o patrimonio del tutelado.
+ARTÍCULO 469 Quáter.- (DEROGADO, G.O. 29 DE NOVIEMBRE DE 2024)

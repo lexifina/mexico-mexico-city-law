@@ -1,2 +1,1 @@
-(ADICIONADO, G.O. 15 DE MAYO DE 2007)
-ARTICULO 469 Bis.- Toda persona capaz para otorgar testamento puede nombrar al tutor o tutores, y a sus sustitutos, que deberán encargarse de su persona y, en su caso, de su patrimonio en previsión del caso de encontrarse en los supuestos del artículo 450. Dichos nombramientos excluyen a las personas que pudiere corresponderles el ejercicio de la tutela, de acuerdo a lo establecido en este código.
+ARTÍCULO 469 Bis.- (DEROGADO, G.O. 29 DE NOVIEMBRE DE 2024)

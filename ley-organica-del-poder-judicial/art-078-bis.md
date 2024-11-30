@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 29 DE NOVIEMBRE DE 2024)
+Artículo 78 Bis. Para el apoyo y auxilio, en los trámites legales, relacionados con las actividades jurídico administrativas derivadas del sistema de justicia laboral, conforme a la Ley Federal del Trabajo, el Consejo de la Judicatura mediante acuerdo, podrá crear las Unidades de Gestión necesarias, con personal de carrera judicial o administrativo con facultades suficientes para ello.

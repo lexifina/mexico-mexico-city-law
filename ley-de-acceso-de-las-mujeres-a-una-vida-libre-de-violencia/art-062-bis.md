@@ -14,3 +14,9 @@ VI. Principio de integralidad: El otorgamiento de la medida a favor de la victim
 VII. Principio de concentración: No se necesita una orden para cada medida, una sola orden de protección podrá concentrar el número de medidas necesarias para garantizar la seguridad y bienestar de la mujer en situación de violencia y en su caso de las víctimas indirectas.
 VIII. Principio pro persona: Para interpretar lo referente al otorgamiento de las medidas de protección, en caso de duda, con relación a la situación de violencia, se estará a lo más favorable para la víctima.
 IX. Principio de interés superior de la niñez: Cuando las decisiones que se adopten relacionadas con el trámite de medidas de protección, afecte de manera directa o indirecta a una niña, niño o adolescente se deberán evaluar y ponderar las posibles repercusiones para evitar efectos negativos en su esfera de derechos
+(ADICIONADA, G.O. 29 DE NOVIEMBRE DE 2024)
+X. Urgencia: La orden se debe implementar y cumplir de manera inmediata, con la mayor agilidad posible a efecto de que cumpla con el fin de prevenir o impedir que los actos de violencia se cometan o se sigan cometiendo.
+(ADICIONADA, G.O. 29 DE NOVIEMBRE DE 2024)
+XI. Utilidad procesal: La orden de protección debe facilitar la confección, integración, tratamiento y conservación de las pruebas que puedan aportarse al trámite.
+(ADICIONADA, G.O. 29 DE NOVIEMBRE DE 2024)
+XII. Principio de lealtad procesal: Las autoridades jurisdiccionales al dictar las medidas u órdenes de protección ajustarán su conducta a la dignidad de la justicia, al respeto que se deben, a la probidad y buena fe.
