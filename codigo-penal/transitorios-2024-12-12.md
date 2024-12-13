@@ -1,0 +1,6 @@
+G.O. 12 DE DICIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONAN EL CAPÍTULO VIII EXTORSIÓN Y EL CAPÍTULO IX COBRANZA ILEGÍTIMA AL TÍTULO PRIMERO DELITOS CONTRA LA VIDA, LA INTEGRIDAD CORPORAL, LA DIGNIDAD Y EL ACCESO A UNA VIDA LIBRE DE VIOLENCIA DEL LIBRO SEGUNDO PARTE ESPECIAL; SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 148 QUÁTER, 148 QUINQUIES Y 163 BIS; SE DEROGAN LA DENOMINACIÓN Y EL ARTÍCULO 209 BIS, LA DENOMINACIÓN DEL CAPÍTULO VI DEL TÍTULO DÉCIMO QUINTO DELITOS CONTRA EL PATRIMONIO DEL LIBRO SEGUNDO PARTE ESPECIAL Y EL ARTÍCULO 236; Y SE REFORMA LA FRACCIÓN III DEL ARTÍCULO 253, TODOS DEL CÓDIGO PENAL PARA EL DISTRITO FEDERAL".]
+PRIMERO.- Remítase a la persona titular de la Jefatura de Gobierno de la Ciudad de México para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
+TERCERO.- Los procedimientos penales que se hayan iniciado antes de la entrada en vigor del presente decreto, deberán concluirse aplicando la Ley penal vigente al momento de la supuesta comisión del delito.
+CUARTO.- Se derogan todas las disposiciones que contravengan el presente Decreto.
