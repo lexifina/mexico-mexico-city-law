@@ -1,0 +1,6 @@
+(ADICIONADO, G.O. 23 DE DICIEMBRE DE 2024)
+Artículo 21 Bis. Para ser Persona Juzgadora se requiere:
+I. Que la persona candidata presente su declaración patrimonial en los tiempos y términos que determine el Instituto Electoral;
+II. No estar inscrito en el Registro Nacional de Obligaciones Alimentarias, ni en el Registro de Personas Agresoras Sexuales que se encuentren vigentes en la Ciudad de México;
+III. No estar inscrito en el Registro de Personas Sancionadas en materia de violencia política contra las mujeres en razón de género en la Ciudad de México, y
+IV. No haber sido condenado por el delito de violencia familiar y en cualquiera de sus modalidades.

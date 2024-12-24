@@ -1,6 +1,10 @@
+(REFORMADO PRIMER PÁRRAFO, G.O. 23 DE DICIEMBRE DE 2024)
+Artículo 70 Bis. Para garantizar el derecho al voto de las personas en prisión preventiva sin sentencia firme, durante las elecciones para la Jefatura de Gobierno, Diputaciones al Congreso local, Alcaldías y cargos del Poder Judicial de la Ciudad de México, el Consejo General conformará una Comisión provisional encargada de coordinar las actividades tendientes a recabar el voto.
 (ADICIONADO, G.O. 2 DE JUNIO DE 2023)
-Artículo 70 Bis. Para garantizar el derecho al voto de las personas en prisión preventiva sin sentencia firme, durante las elecciones para la Jefatura de Gobierno, Diputaciones al Congreso local, así como Alcaldías, el Consejo General conformará una Comisión provisional encargada de coordinar las actividades tendientes a recabar el voto.
 Serán personas integrantes de esta comisión, tres personas Consejeras Electorales con derecho a voz y voto, una persona representante de cada Partido Político quienes sólo tendrán derecho a voz. La Secretaría de Seguridad Ciudadana de la Ciudad de México podrá emitir a la comisión, únicamente opiniones en materia logística-administrativa en las tareas en que se vea involucrada, dentro del marco de sus atribuciones y a partir de los instrumentos electorales aplicables.
+(ADICIONADO, G.O. 23 DE DICIEMBRE DE 2024)
+Cuando se discutan asuntos respecto de la elección de las personas integrantes del Poder Judicial de la Ciudad de México, las personas representantes de cada partido político no podrán participar en la Comisión a la que se refiere el presente artículo.
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
 Dicha Comisión deberá instalarse el año anterior en que se verifique la jornada electoral y tendrá las siguientes atribuciones:
 I. Proponer al Consejo los convenios necesarios para garantizar el voto de personas privadas de la libertad sin sentencia firme;
 II. Proponer al Consejo General las acciones necesarias de coordinación y colaboración con el Instituto Nacional y otras autoridades, a fin de realizar los trámites que les permitan a la (sic) personas en prisión preventiva formar parte del padrón electoral y de la lista nominal de electores, para las elecciones a celebrarse;
@@ -8,4 +12,5 @@ III. Informar al Consejo General sobre los mecanismos para recabar el voto de la
 IV. Presentar al Consejo General los mecanismos e informes, respecto de la promoción y participación de las personas ciudadanas privadas de la libertad sin sentencia firme en la Ciudad de México;
 V. Presentar bajo el principio de austeridad y máxima eficacia al Consejo General el proyecto de impacto presupuestal derivado de garantizar el derecho al voto de las personas privadas de la libertad, para su inclusión en el presupuesto institucional; y,
 VI. Las demás que establezca este Código, demás leyes y ordenamientos aplicables en la materia.
+(ADICIONADO, G.O. 2 DE JUNIO DE 2023)
 La Comisión observará en el ejercicio de sus atribuciones los lineamientos que al efecto emita el Instituto Nacional, cuando esto sea aplicable.
