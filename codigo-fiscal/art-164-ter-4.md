@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 27 DE DICIEMBRE DE 2024)
+ARTICULO 164 TER 4.- Los sujetos de este impuesto deberán manifestarlo y pagarlo en las formas y medios que establezca la Secretaría, a más tardar el día 17 del mes inmediato siguiente a aquel en que se cause el impuesto, y serán a cuenta del impuesto anual, el cual deberá pagarse a través de la declaración anual que se presente en el mes de julio del ejercicio fiscal siguiente a aquel en el que se causó, de conformidad con las reglas de carácter general que emita la Secretaría.

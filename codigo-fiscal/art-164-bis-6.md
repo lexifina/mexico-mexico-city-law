@@ -4,5 +4,8 @@ I. Registrarse, para los efectos de este impuesto, ante la Secretaría, mediante
 II. Llevar un registro pormenorizado de las ventas a que se refiere el artículo 164 BIS de este Código, por cada establecimiento, local, agencia o sucursal en que se efectúen, identificando los montos de cada una de dichas operaciones y las cantidades que integran la base del impuesto.
 III. Expedir comprobante por cada una de las operaciones, sin que el impuesto establecido en este Capítulo se traslade en forma expresa y por separado.
 La Secretaría de Desarrollo Económico y las Alcaldías tendrán la obligación de proporcionar a la Tesorería, de forma trimestral la información con la que cuenten sobre los establecimientos que realicen actividades relacionadas con este impuesto, a fin de mantener actualizado el padrón correspondiente y ejercer las facultades con que cuenta la autoridad fiscal.
-CAPITULO VIII
-De las Contribuciones de Mejoras
+(ADICIONADO, G.O. 27 DE DICIEMBRE DE 2024)
+La Secretaría a través de la Tesorería podrá emitir reglas de carácter general para el debido cumplimiento de las obligaciones fiscales de este impuesto.
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.O. 27 DE DICIEMBRE DE 2024)
+CAPÍTULO VII TER
+Del Impuesto a la Emisión de Gases Contaminantes a la Atmósfera
