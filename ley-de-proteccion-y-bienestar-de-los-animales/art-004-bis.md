@@ -12,3 +12,5 @@ IV. Promover la cultura, protección, atención y trato digno a los animales a t
 V. Participar en las instancias de carácter social y vecinal, que cuiden, asistan y protejan a los animales.
 (ADICIONADA, G.O. 18 DE JUNIO DE 2012)
 VI. Cuidar y velar por la observancia y aplicación de la presente Ley.
+(ADICIONADA, G.O. 2 DE MAYO DE 2025)
+VII. En el caso de las personas benefactoras de animales comunitarios, brindarles en la medida de sus posibilidades, las condiciones adecuadas de nutrición, esterilización, ambiente, salud, comportamiento y estado mental y asegurarse de que porten un collar o pechera de identificación con los datos de al menos una persona de la comunidad.
