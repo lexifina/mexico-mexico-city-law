@@ -1,0 +1,6 @@
+G.O. 11 DE JUNIO DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO POR EL QUE SE "ADICIONAN LAS FRACCIONES XVII QUÁTER Y XVII QUINQUIES AL ARTÍCULO 4 DE LA LEY ORGÁNICA DEL CONGRESO DE LA CIUDAD DE MÉXICO. SE ADICIONAN LAS FRACCIONES XVII QUÁTER Y XVII QUINQUIES AL ARTÍCULO 2 Y SE REFORMAN EL ARTÍCULO 45, LA FRACCIÓN VII DEL ARTÍCULO 106 Y EL ARTÍCULO 278 DEL REGLAMENTO DEL CONGRESO DE LA CIUDAD DE MÉXICO".]
+PRIMERO. El presente Decreto entrará en vigor, al momento de su aprobación por el Pleno del Congreso de la Ciudad de México.
+SEGUNDO. Remítase a la persona titular de la Jefatura de Gobierno, para su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. La Junta de Coordinación Política del Congreso de la Ciudad de México estará facultada para determinar, mediante acuerdo, las plataformas digitales institucionales que habrán de utilizarse para la implementación, administración y operación de la firma digital electrónica en los actos legislativos y administrativos internos, garantizando en todo momento la integridad, autenticidad y seguridad de los documentos generados electrónicamente.
+CUARTO. Todas aquellas referencias hechas en materia de firma electrónica se entenderán hechas a la firma digital electrónica.
