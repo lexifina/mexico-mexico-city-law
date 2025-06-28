@@ -8,6 +8,8 @@ V. Proporcionar semestralmente a la Secretaría, en los meses de enero y julio d
 VI. Contar con instalaciones seguras e higiénicas para el uso de los turistas;
 VII. Informar a los vecinos inmediatos sobre el uso turístico de los inmuebles ofertados y proporcionar números de contacto para recibir reportes sobre el mal uso o situaciones de emergencia sobre dichos inmuebles;
 VIII. Garantizar los requisitos de seguridad, atendiendo la normatividad en materia de gestión integral de riesgos y protección civil;
+(ADICIONADA, G.O. 27 DE JUNIO DE 2025)
+VIII Bis. Capacitar y sensibilizar a su personal y/o prestador de servicio en la prevención y rechazo de cualquier acto de abuso sexual infantil, explotación sexual infantil con o sin fines comerciales, o cualquier otro tipo de explotación, y demás conductas punibles establecidas en las disposiciones aplicables;
 IX. Cumplir con las obligaciones en materia fiscal establecidas en la normatividad aplicable;
 X. Registrar ante la Secretaría, en el Padrón de Anfitriones, número telefónico y correo electrónico para la recepción y solución de quejas por parte de vecinos y turistas relacionadas con el inmueble ofertado;
 XI. Proteger los datos personales proporcionados por los turistas en términos de lo dispuesto por la Ley de la materia;

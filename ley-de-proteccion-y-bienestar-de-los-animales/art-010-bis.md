@@ -17,16 +17,7 @@ Las disposiciones contenidas en esta fracción no sustituyen las facultades que 
 (REFORMADO, G.O. 27 DE MARZO DE 2024)
 h. Realizar operativos en los mercados y establecimientos que se tengan identificados, los cuales se dediquen a la venta, pensión y escuelas de adiestramiento, a fin de detectar posibles anomalías en dichos centros y establecimientos.
 Asimismo, podrán realizar operativos en escuelas de adiestramiento o lugares que brinden servicio de pensión para animales, a efecto de verificar que no existan violaciones a la presente Ley.
-(ADICIONADO [N. DE E. CON SUS NUMERALES], G.O. 16 DE DICIEMBRE DE 2020)
-i. En los casos que exista flagrancia estará justificado su ingreso a un lugar cerrado sin orden judicial, cuando:
-(REFORMADO, G.O. 27 DE MAYO DE 2021)
-1. Sea necesario para evitar la comisión de los delitos previstos en los artículos 350 Bis y 350 Ter del Capítulo IV "Delitos cometidos por actos de maltrato o crueldad en contra de animales no humanos", del Código Penal para el Distrito Federal; o
-(REFORMADO, G.O. 27 DE MAYO DE 2021)
-2. Se realiza con consentimiento de quien se encuentre facultado para otorgarlo.
-(REFORMADO, G.O. 27 DE MAYO DE 2021)
-En los casos del numeral 2, se procederá en términos de lo previsto en el artículo 290 del Código Nacional de Procedimientos Penales.
-(ADICIONADO, G.O. 16 DE DICIEMBRE DE 2020)
-Los motivos que determinaron la intromisión sin orden judicial constarán detalladamente en el informe que al efecto se levante.
+i. (DEROGADO, G.O. 27 DE JUNIO DE 2025)
 (ADICIONADO, G.O. 27 DE MAYO DE 2021)
 j) Detener y remitir ante la autoridad competente a las personas probables infractoras que realicen y contribuyan en actos especificados en el artículo 25 de la presente ley.
 (ADICIONADA, G.O. 13 DE OCTUBRE DE 2006)
