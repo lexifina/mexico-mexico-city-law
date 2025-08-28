@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(REFORMADO, G.O. 28 DE NOVIEMBRE DE 2014)
-Artículo 4 Ter.- Cuando la inversión realizada por el Gobierno del Distrito Federal en la instalación de equipos y sistemas tecnológicos o cualquier infraestructura que se encuentre dentro del marco de regulación de esta ley, sea superior a los cinco mil veces la Unidad de Cuenta de la Ciudad de México vigente, no podrá ser modificada o retirada sin previo informe a la Contraloría General del Distrito Federal en el que se justifique dicha acción.
+(REFORMADO, G.O. 27 DE AGOSTO DE 2025)
+Artículo 4 Ter.- Cuando la inversión realizada por el Gobierno de la Ciudad de México en la instalación de equipos y sistemas tecnológicos o cualquier infraestructura que se encuentre dentro del marco de regulación de esta ley, sea superior a los cinco mil veces la Unidad de Medida y Actualización vigente, no podrá ser modificada o retirada sin previo informe a la Secretaría de la Contraloría General de la Ciudad de México en el que se justifique dicha acción.

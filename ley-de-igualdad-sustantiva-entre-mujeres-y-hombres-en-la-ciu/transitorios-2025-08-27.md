@@ -1,0 +1,5 @@
+G.O. 27 DE AGOSTO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ADICIONAN LAS FRACCIONES I BIS Y IV BIS DEL ARTÍCULO 5, Y LA I BIS DEL ARTÍCULO 23; SE REFORMA LA FRACCIÓN IV DEL ARTÍCULO 7, LA FRACCIÓN XI DEL ARTÍCULO 10 Y LA FRACCIÓN IX DEL ARTÍCULO 23 DE LA LEY DE IGUALDAD SUSTANTIVA ENTRE MUJERES Y HOMBRES DE LA CIUDAD DE MÉXICO; Y SE ADICIONA LA FRACCIÓN IV BIS DEL ARTÍCULO 4 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DE LA CIUDAD DE MÉXICO".]
+PRIMERO.– Remítase a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.– El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO.- Las obligaciones que, en su caso, se generen con motivo de la entrada en vigor del presente Decreto, se cubrirán con cargo al presupuesto aprobado a las Unidades Responsables del Gasto para el presente ejercicio fiscal y subsecuentes, por lo que no se autorizarán recursos adicionales para tales efectos.
