@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-24. El Órgano de Evaluación de Desempeño Judicial es un órgano auxiliar del Tribunal de Disciplina Judicial, competente para evaluar y dar seguimiento al desempeño de los órganos jurisdiccionales a fin de consolidar un ejercicio responsable, profesional, independiente, honesto y eficaz de la función jurisdiccional, así como evitar actos que la demeriten.

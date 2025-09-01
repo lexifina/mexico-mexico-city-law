@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-11. El Pleno podrá cambiar o separarse de sus propios precedentes vinculantes siempre que, a partir de la resolución de casos concretos, expongan expresamente junto al nuevo criterio una motivación reforzada que justifique el cambio o separación.

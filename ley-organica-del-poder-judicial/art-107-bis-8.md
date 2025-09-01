@@ -5,7 +5,8 @@ II. Gestionar la elaboración de oficios, exhortos y demás documentos que le se
 III. Gestionar la integración de las copias autorizadas.
 IV. Elaborar por sí o a través del personal a su cargo, las resoluciones escritas de trámite, así como cualquier actuación de carácter administrativo que le sea encomendada.
 V. Brindar el apoyo para la celebración de las audiencias.
-VI. Operar el sistema de gestión, en los términos aprobados por el Pleno del Consejo.
+(REFORMADA, G.O. 31 DE AGOSTO DE 2025)
+VI. Operar el sistema de gestión, en los términos aprobados por el Órgano de Administración Judicial.
 VII. Dirigir los trabajos y supervisar el desempeño del personal a su cargo.
 VIII. Aplicar correctamente los recursos asignados a la Unidad de Gestión Judicial, conforme a la normatividad aplicable.
 IX. Atender el rol de turnos del personal de la Unidad de Gestión Judicial, a fin de que se reparta equitativamente.
@@ -13,4 +14,5 @@ X. Guardar el debido secreto respecto de los asuntos que por su oficio o puesto 
 XI. Vigilar que el personal a su cargo guarde el debido secreto respecto de los asuntos que por su oficio o puesto tengan conocimiento.
 XII. Informar de las conductas del personal a su cargo, que pudieran ameritar alguna medida disciplinaria.
 XIII. Mantener actualizada la información que le corresponda registrar.
-XIV. Las demás que deriven del Código Nacional de Procedimientos Civiles y Familiares, la presente Ley Orgánica y otras leyes, aquellas que le instruya el Pleno del Consejo.
+(REFORMADA, G.O. 31 DE AGOSTO DE 2025)
+XIV. Las demás que deriven del Código Nacional de Procedimientos Civiles y Familiares, la presente Ley Orgánica y otras leyes, aquellas que le instruya el Órgano de Administración Judicial.

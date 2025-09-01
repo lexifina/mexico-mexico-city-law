@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-43. Sin prejuicio de lo que establezcan las leyes en la materia, el Pleno del Órgano de Administración Judicial regulará mediante acuerdos generales los procedimientos en caso de demora en la emisión de sentencias en materia penal, para garantizar el cumplimiento de los plazos previstos por el artículo 20, apartado B, fracción VII, de la Constitución Política de los Estados Unidos Mexicanos.

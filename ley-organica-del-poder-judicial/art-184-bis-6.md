@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 184 Bis 6. La Subdirección de Trabajo Social dependiente de la Coordinación de Intervención Especializada para Apoyo Judicial, tiene por objeto atender de manera eficiente y oportuna los requerimientos de los órganos jurisdiccionales del Tribunal Superior de Justicia, relativos a las solicitudes para la práctica de la Pericial en Trabajo Social. Los servicios de la Subdirección de Trabajo Social, se otorgarán de forma gratuita.
+La Subdirección estará conformada por una Jefatura de Unidad y un cuerpo de trabajadores especializados en materia de servicio social suficientes para el adecuado cumplimiento de sus funciones.

@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-16. El Pleno nombrará, a propuesta de quien lo presida, a una secretaria o secretario general de acuerdos y a una subsecretaria o subsecretario general de acuerdos.
+La persona Magistrada que presida el Tribunal de Disciplina Judicial tendrá las atribuciones que se establezcan en la ley y en los acuerdos generales que para tal efecto emita el Pleno del Tribunal de Disciplina Judicial.
+La Presidenta o el Presidente del Tribunal de Disciplina Judicial propondrá al Órgano de Administración Judicial el nombramiento de las y los secretarios auxiliares de acuerdos, así como a las y los actuarios y al personal subalterno necesario para el despacho de los asuntos del tribunal, conforme a lo establecido por las disposiciones jurídicas aplicables.

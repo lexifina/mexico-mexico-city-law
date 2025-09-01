@@ -1,0 +1,4 @@
+(DEROGADO TERCER PÁRRAFO, G.O. 31 DE AGOSTO DE 2025)
+(DEROGADO CUARTO PÁRRAFO, G.O. 31 DE AGOSTO DE 2025)
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 184 Bis 1. Para ser Titular de la Dirección del Centro de Convivencia Familiar Supervisada, deberá de reunir los requisitos establecidos en las fracciones I, II, VI, VII y VIII del artículo 183 BIS de esta Ley, además deberá de poseer al día de su designación título de Licenciado en Pedagogía, Psicología, Sociología, Trabajo Social o su equivalente y Cédula Profesional, expedida por la autoridad o institución legalmente facultada para ello, con antigüedad mínima de cinco años y deberá contar con Maestría o su equivalente, así como acreditar experiencia y capacidad indispensables en la materia para el desempeño del cargo y será designado por el Órgano de Administración Judicial.

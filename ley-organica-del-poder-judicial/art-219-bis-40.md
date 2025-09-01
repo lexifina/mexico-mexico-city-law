@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-40. El Órgano de Investigación de Responsabilidades Administrativas fungirá como autoridad investigadora en términos de la Ley de Responsabilidades Administrativas de la Ciudad de México y tendrá la carga de la prueba para demostrar la veracidad sobre los hechos que demuestren la existencia de faltas administrativas cometidas por el personal jurisdiccional del Poder Judicial, así como la responsabilidad de aquellos a quienes se imputen las mismas.

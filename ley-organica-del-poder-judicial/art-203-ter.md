@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 203 Ter. Sin perjuicio de las responsabilidades legales en que pudiera incurrir la persona facilitadora privada y certificada en el ejercicio de su función, queda sometida al régimen disciplinario y procedimiento previsto en la Ley de Mecanismos Alternativos de Solución de Controversias del Poder Judicial de la Ciudad de México, el Reglamento Interno del Centro y demás disposiciones aplicables.

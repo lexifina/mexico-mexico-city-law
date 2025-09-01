@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-27. El Órgano de Evaluación contará con el personal operativo que requiera para el adecuado ejercicio de sus funciones. La persona Titular del Órgano de Evaluación propondrá al Pleno del Tribunal de Disciplina Judicial la aprobación de la plantilla operativa que se requiera para el desahogo de las funciones de evaluación y seguimiento a su cargo.

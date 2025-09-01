@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-6. El Órgano de Investigación tendrá a su cargo la investigación de los hechos u omisiones que puedan constituir responsabilidades administrativas de las personas que ejercen funciones jurisdiccionales en el Poder Judicial de la Ciudad de México, en los términos establecidos en esta Ley, en los acuerdos generales que emita el propio Tribunal, así como en la Ley de Responsabilidades Administrativas de la Ciudad de México.

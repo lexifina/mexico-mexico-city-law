@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-28. Los procesos de evaluación del desempeño serán una garantía del derecho al acceso a la justicia, así como de los derechos a la información y la participación pública. Sus resultados serán públicos, accesibles y transparentes. El Órgano de Evaluación garantizará el ejercicio de los derechos a la información y participación pública en relación con los resultados de los procesos de evaluación, particularmente en el contexto de la elección judicial.

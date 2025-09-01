@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 31 DE AGOSTO DE 2025)
+Artículo 219 Bis-22. Las Comisiones serán competentes para substanciar y resolver en primera instancia los procedimientos de responsabilidad administrativa seguidos contra las personas que desempeñan funciones jurisdiccionales en el Poder Judicial de la Ciudad de México, los recursos de inconformidad, las impugnaciones de la evaluación del desempeño de la función judicial, los conflictos laborales, de acuerdo con su especialización, y los demás asuntos que decida el Pleno del Tribunal de Disciplina Judicial mediante acuerdo general.
