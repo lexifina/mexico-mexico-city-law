@@ -1,0 +1,6 @@
+G.O. 28 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA EL PRIMER PÁRRAFO Y SE ADICIONA UNA FRACCIÓN VII AL APARTADO A DEL ARTÍCULO 6 DE LA LEY ORGÁNICA DEL CONSEJO ECONÓMICO, SOCIAL Y AMBIENTAL DE LA CIUDAD DE MÉXICO".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. A partir de la entrada en vigor del presente Decreto, el Consejo contará con un plazo de noventa días hábiles para emitir una convocatoria pública mediante la cual se elija a la persona representante de la comunidad de capitalinos residentes en el extranjero como consejera integrante. La convocatoria deberá establecer los requisitos de elegibilidad y el procedimiento deliberativo correspondiente.
+CUARTO. Para garantizar la continuidad de la representación de la comunidad de capitalinos residentes en el extranjero, el Consejo, dentro de los noventa días hábiles siguientes a la incorporación de la persona consejera referida en el artículo transitorio anterior, establecerá en su Reglamento el procedimiento aplicable para las designaciones subsecuentes derivadas de esta reforma.
