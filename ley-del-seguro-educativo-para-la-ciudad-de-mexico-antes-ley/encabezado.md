@@ -1,4 +1,4 @@
-LEY DEL SEGURO EDUCATIVO PARA EL DISTRITO FEDERAL
+LEY DEL SEGURO EDUCATIVO PARA LA CIUDAD DE MÉXICO
 Ley publicada en la Gaceta Oficial del Distrito Federal, el miércoles 26 de diciembre de 2007.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 DECRETO DE LEY DEL SEGURO EDUCATIVO PARA EL DISTRITO FEDERAL.

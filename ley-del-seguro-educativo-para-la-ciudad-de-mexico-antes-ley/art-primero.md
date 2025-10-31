@@ -4,4 +4,3 @@ IV LEGISLATURA.
 D E C R E T A
 DECRETO DE LEY DEL SEGURO EDUCATIVO PARA EL DISTRITO FEDERAL.
 Artículo Primero.- Se expide la Ley del Seguro Educativo para el Distrito Federal, para quedar como sigue:
-LEY DEL SEGURO EDUCATIVO PARA EL DISTRITO FEDERAL
