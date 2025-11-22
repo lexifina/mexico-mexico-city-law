@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 21 DE NOVIEMBRE DE 2025)
+ARTÍCULO 238 BIS. Se equipara al delito de despojo y se sancionará con las mismas penas asignadas a este delito a quien a pesar de haber sido requerido por la autoridad competente, mantenga la ocupación sobre el bien inmueble ajeno o bien, continúe impidiendo el disfrute material del mismo.
+Este delito se actualiza durante el tiempo que se prolongue la ocupación del inmueble; el uso del derecho real, o el impedimento de aprovechar materialmente el bien inmueble y hasta que la víctima sea restituida en el derecho.
