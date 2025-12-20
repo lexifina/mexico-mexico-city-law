@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 95 Bis. El reclutamiento es la primera etapa del proceso institucional de ingreso a cargo del Instituto o la Universidad, que inicia con la publicación de la Convocatoria y el registro de inscripción para ocupar las plazas vacantes dentro de las Instituciones de Seguridad Ciudadana.
+Esta etapa concluye con la recepción de los documentos de las personas aspirantes interesadas en la citada Convocatoria y la verificación del cumplimiento de los requisitos señalados en la Ley General, en la presente Ley, en las demás disposiciones legales y en la propia Convocatoria, así como con la emisión de un registro de inscripción para aquellas personas aspirantes que cumplan en tiempo y forma.

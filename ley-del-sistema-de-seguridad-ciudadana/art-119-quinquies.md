@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 119 Quinquies. En los procedimientos disciplinarios, la Comisión de Honor y Justicia en la Secretaría u Órgano Colegiado equivalente u homólogo en la Fiscalía, podrá determinar mediante acuerdo la suspensión temporal del empleo, cargo o comisión de la persona servidora pública probable infractora como medida precautoria, previo o con posterioridad a la notificación del inicio del procedimiento, si a su juicio es conveniente para la continuación del procedimiento por afectar a las Instituciones de Seguridad Ciudadana o a la comunidad en general.
+Esta medida no prejuzga sobre la responsabilidad o incumplimiento que se impute, debiéndose asentar expresamente esta salvedad.

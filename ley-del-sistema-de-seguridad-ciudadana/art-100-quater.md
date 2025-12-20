@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 100 Quater. La certificación individual es el proceso institucional por el que las personas servidoras públicas de las Instituciones de Seguridad Ciudadana se someten a las evaluaciones para comprobar conocimientos, habilidades, aptitudes y competencias, para el correcto desempeño de sus labores conforme a los perfiles establecidos por el Secretariado Ejecutivo del Sistema Nacional de Seguridad Pública.

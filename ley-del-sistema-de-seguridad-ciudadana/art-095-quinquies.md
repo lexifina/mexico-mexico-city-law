@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 95 Quinquies. El ingreso es el proceso institucional que consiste en la incorporación a las Instituciones de Seguridad Ciudadana, de las y los cadetes que concluyeron satisfactoriamente las etapas de reclutamiento, selección y formación inicial. La conclusión satisfactoria de estas etapas precisa el cumplimiento y la aprobación de los requisitos y las actividades previstas en la presente Ley y demás normatividad aplicable.

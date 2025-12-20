@@ -1,0 +1,5 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 100 Ter. Las personas servidoras públicas de las Instituciones de Seguridad Ciudadana deberán someterse y aprobar las evaluaciones de control de confianza, del desempeño y de competencias, de conformidad con lo dispuesto en la Ley General, esta Ley y demás normas aplicables.
+La aprobación de las evaluaciones de control de confianza, competencias básicas o profesionales, formación inicial y del desempeño, son requisitos para la obtención de la certificación correspondiente. Las Instituciones de Seguridad Ciudadana son responsables de llevar a cabo las acciones necesarias para la aplicación de dichas evaluaciones.
+El personal ministerial, pericial o policial que no acredite las evaluaciones de control de confianza o que no cumpla con los requisitos para obtener y mantener su certificación correspondiente, será sujeto del procedimiento administrativo de separación en términos de lo dispuesto en la Ley General, la presente Ley y demás normatividad aplicable.
+La vigencia de las evaluaciones de control de confianza, de competencias básicas o profesionales y del desempeño será de tres años.

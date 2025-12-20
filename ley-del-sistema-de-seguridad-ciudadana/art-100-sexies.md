@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 100 Sexies. El certificado individual de las personas servidoras públicas de las Instituciones de Seguridad Ciudadana será indispensable para los procesos institucionales de profesionalización, promoción y permanencia.
+El Secretariado Ejecutivo del Sistema Nacional de Seguridad Pública será responsable de emitir y publicar, tanto los perfiles requeridos, como el proceso de certificación individual, el que deberá basarse en instrumentos de medición cuantitativos y cualitativos, sustentados en metodologías razonables y actualizadas.
+Las Instituciones de Seguridad Ciudadana reconocerán la vigencia y validez de los certificados individuales debidamente expedidos y registrados, conforme a las disposiciones de la Ley General y demás aplicables.

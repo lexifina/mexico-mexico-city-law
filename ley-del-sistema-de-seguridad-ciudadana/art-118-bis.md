@@ -1,9 +1,15 @@
-(ADICIONADO, G.O. 24 DE DICIEMBRE DE 2019)
-Artículo 118 Bis. En los asuntos a que se refieren las fracciones I a III del artículo 116 de esta Ley se abrirá un expediente con las constancias que existan sobre el particular y se sujetarán al siguiente procedimiento:
-I. Se notificará personalmente al integrante el inicio del procedimiento en el domicilio que haya señalado conforme al artículo 59, fracción XXXII de esta Ley.
-II. En la notificación se le informará la naturaleza y causa del procedimiento a fin de que conozca los hechos que se le imputan y pueda defenderse por sí o por su defensor concediéndole diez días hábiles para que ofrezca las pruebas pertinentes y señalándole lugar, día y hora para la celebración de la audiencia de pruebas y alegatos. Serán admisibles toda clase de pruebas, excepto la confesional de la autoridad y las que fueren en contra del derecho.
-III. En dicha audiencia se desahogarán las pruebas admitidas y el interesado podrá presentar en forma verbal o por escrito los alegatos que a su derecho convengan. Una vez integrado el expediente, la Comisión de Honor y Justicia dictará su resolución debidamente fundada y motivada dentro de los veinte días hábiles siguientes, misma que será notificada personalmente al interesado en el domicilio antes indicado o en el que haya designado durante la secuela del procedimiento, misma que tendrá que ser dentro del territorio de la Ciudad de México.
-IV. La resolución que emita la Comisión de Honor y Justicia tomará en consideración a la falta cometida, la jerarquía y los antecedentes del integrante sujeto a procedimiento, así como las pruebas desahogadas.
-V. De todo lo actuado se levantará constancia por escrito.
-Las resoluciones de la Comisión de Honor y Justicia se agregarán a los expedientes u hojas de servicio de los integrantes de las Instituciones de Seguridad Ciudadana.
-La substanciación del procedimiento administrativo disciplinario se realizará por la unidad administrativa encargada de brindar el apoyo, soporte y coadyuvancia a la Comisión de Honor y Justicia, pero en todos los casos la resolución será emitida por dicho órgano colegiado.
+(REFORMADO PRIMER PÁRRAFO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 118 Bis. Emitido el acuerdo de inicio del procedimiento de separación, la Unidad Administrativa competente sustanciadora, citará a la persona servidora pública probable infractora a través de la Unidad Administrativa de adscripción donde desempeñe sus funciones, a efecto de que comparezca ante la citada Unidad Administrativa competente sustanciadora para notificarle el referido acuerdo de inicio de procedimiento de separación.
+I. (DEROGADA, G.O. 19 DE DICIEMBRE DE 2025)
+II. (DEROGADA, G.O. 19 DE DICIEMBRE DE 2025)
+III. (DEROGADA, G.O. 19 DE DICIEMBRE DE 2025)
+IV. (DEROGADA, G.O. 19 DE DICIEMBRE DE 2025)
+V. (DEROGADA, G.O. 19 DE DICIEMBRE DE 2025)
+(REFORMADO, G.O. 19 DE DICIEMBRE DE 2025)
+Asimismo, las constancias que integran el expediente administrativo, serán notificadas a la persona servidora pública probable infractora, a través del personal habilitado, que para tal efecto designe la persona Titular de la Unidad Administrativa competente sustanciadora.
+(REFORMADO, G.O. 19 DE DICIEMBRE DE 2025)
+En caso de que la persona servidora pública probable infractora se negara a recibir la notificación, se asentará dicha situación en el acta de notificación que para tal efecto se elabore, y se llevará a cabo dicha notificación por instructivo, en la que se asentará que las subsecuentes notificaciones se realizarán por estrados, en un lugar visible al público dentro de las instalaciones que ocupe la Unidad Administrativa competente sustanciadora.
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+En la notificación se le hará del conocimiento a la persona servidora pública probable infractora el incumplimiento a los requisitos de permanencia que se le impute, el lugar, el día y la hora en que tendrá verificativo la audiencia y su derecho a ofrecer pruebas y formular alegatos, por sí o asistida de una defensa.
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+La audiencia se celebrará en el plazo de quince días hábiles posteriores a la notificación, plazo en el que la persona servidora pública probable infractora podrá imponerse de los autos del expediente que se haya integrado y le serán facilitados para su consulta.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 108 Quater. Las sanciones de amonestación, suspensión y remoción por infracciones a las obligaciones establecidas en la Ley General, la presente Ley y demás normatividad aplicable, serán impuestas mediante resolución formal, en el caso de la Secretaría por la Comisión de Honor y Justicia y en el caso de la Fiscalía por el Órgano Colegiado equivalente u homólogo.

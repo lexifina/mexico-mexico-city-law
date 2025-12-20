@@ -1,0 +1,4 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 100 Bis. La evaluación de competencias profesionales consiste en la medición y valoración de conjuntos de conocimientos, habilidades, actitudes y valores con que cuenta el personal ministerial, pericial o policial para el desempeño eficiente de las actividades y funciones ministeriales, periciales o policiales, que se desarrollan mediante los programas de formación inicial y continua.
+La formación continua con fines de certificación de competencias profesionales podrá ser impartida por el Instituto, la Universidad, así como por instancias capacitadoras externas.
+La obtención de resultados aprobatorios de evaluaciones de competencias profesionales, derivarán en la certificación de la competencia, mediante certificados físicos o electrónicos que podrá emitir el Instituto, la Universidad, o bien, instancias certificadoras externas.

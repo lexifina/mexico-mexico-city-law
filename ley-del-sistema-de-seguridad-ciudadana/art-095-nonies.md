@@ -1,0 +1,10 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 95 Nonies. La promoción es el proceso institucional mediante el cual se otorga a las personas servidoras públicas de las Instituciones de Seguridad Ciudadana, un ascenso al grado o nivel inmediato superior al que ostenten, dentro de la jerarquía o categoría prevista en las disposiciones legales aplicables.
+Las promociones sólo podrán conferirse atendiendo a la normatividad aplicable y cuando exista una vacante para la jerarquía o categoría superior inmediata correspondiente a su grado o nivel.
+Las Instituciones de Seguridad Ciudadana establecerán las modalidades y reglas específicas para la promoción de grado o nivel de las personas servidoras públicas. Entre estas modalidades se deberá establecer, al menos, la de concurso por convocatoria abierta. Para el establecimiento de las reglas específicas deberán considerarse, al menos: el cumplimiento de los requisitos de permanencia, el nivel de estudios, la profesionalización continua, el tiempo cumplido en el grado o nivel actual, la antigüedad en la Institución, los reconocimientos y condecoraciones obtenidas, así como el resultado de la evaluación del desempeño.
+De manera enunciativa más no limitativa, los procesos de promoción deberán regirse por los principios de legalidad, transparencia e igualdad sustantiva entre hombres y mujeres, privilegiando que, del total de lugares ofertados en dichos procesos, se destine para mujeres, al menos, el porcentaje que estas representen en el estado de fuerza o la plantilla de personas servidoras públicas que integran la Institución de Seguridad Ciudadana.
+Al personal que sea promovido, le será ratificada su nueva jerarquía o categoría mediante la expedición de la constancia de grado o nivel correspondiente.
+Para ocupar un grado o nivel dentro de las Instituciones de Seguridad Ciudadana, se deberán reunir los requisitos establecidos por esta Ley y las disposiciones normativas aplicables.
+(REFORMADA SU DENOMINACIÓN, G.O. 19 DE DICIEMBRE DE 2025)
+Capítulo V
+De la Profesionalización, Evaluación y Certificación Individual

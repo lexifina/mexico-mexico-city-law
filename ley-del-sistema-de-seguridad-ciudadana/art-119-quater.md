@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 19 DE DICIEMBRE DE 2025)
+Artículo 119 Quater. La persona servidora pública probable infractora deberá señalar domicilio para oír y recibir notificaciones dentro de la Ciudad de México, apercibiéndole que en caso de no hacerlo las subsecuentes notificaciones se realizarán por estrados, en un lugar visible al público dentro de las instalaciones que ocupe la Unidad Administrativa competente sustanciadora.
