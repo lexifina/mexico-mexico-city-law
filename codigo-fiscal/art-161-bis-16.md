@@ -1,27 +1,27 @@
 (REFORMADO PRIMER PÁRRAFO, G.O. 21 DE DICIEMBRE DE 2020)
 ARTICULO 161 BIS 16.- Los contribuyentes que de acuerdo con el presente Capítulo, se encuentren obligados al pago del Impuesto sobre Tenencia o Uso de Vehículos, cuyo año modelo del vehículo de que se trate sea anterior a 2002, pagarán el impuesto en la fecha y forma referida en el mencionado Capítulo y lo determinarán conforme a lo siguiente:
 I. En caso de vehículos de uso particular hasta de quince pasajeros, la determinación se hará atendiendo el cilindraje del motor, conforme a lo siguiente:
-(REFORMADA EN SUS CUOTAS, G.O. 27 DE DICIEMBRE DE 2024)
+(REFORMADA EN SUS CUOTAS, G.O. 19 DE DICIEMBRE DE 2025)
 CILINDRAJECUOTA
-Hasta 4$477.00
-De 5 o 6$1,427.00
-De 8 o más$1,778.00
-(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 27 DE DICIEMBRE DE 2024)
-II. En el caso de vehículos importados al país, de año modelo posterior a 1964, pagarán una cuota de $3,241.00, los demás pagarán conforme a la cuota señalada en la fracción anterior;
-(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 27 DE DICIEMBRE DE 2024)
-III. En caso de motocicletas, se pagará una cuota de $595.00;
-(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 27 DE DICIEMBRE DE 2024)
-IV. En el caso de vehículos destinados al transporte público de pasajeros, se pagará una cuota de $1,481.00;
-(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 27 DE DICIEMBRE DE 2024)
-V. En el caso de vehículos de carga con placas de carga o de servicio particular, se pagará una cuota de $289.00 por cada tonelada o fracción de capacidad de carga o de arrastre, y
-(ADICIONADA CON SU TABLA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SUS CUOTAS, G.O. 27 DE DICIEMBRE DE 2024)
+Hasta 4$496.00
+De 5 o 6$1,483.00
+De 8 o más$1,848.00
+(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 19 DE DICIEMBRE DE 2025)
+II. En el caso de vehículos importados al país, de año modelo posterior a 1964, pagarán una cuota de $3,368.00, los demás pagarán conforme a la cuota señalada en la fracción anterior;
+(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 19 DE DICIEMBRE DE 2025)
+III. En caso de motocicletas, se pagará una cuota de $618.00;
+(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 19 DE DICIEMBRE DE 2025)
+IV. En el caso de vehículos destinados al transporte público de pasajeros, se pagará una cuota de $1,539.00;
+(ADICIONADA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 19 DE DICIEMBRE DE 2025)
+V. En el caso de vehículos de carga con placas de carga o de servicio particular, se pagará una cuota de $300.00 por cada tonelada o fracción de capacidad de carga o de arrastre, y
+(ADICIONADA CON SU TABLA, G.O. 23 DE DICIEMBRE DE 2019) (REFORMADA EN SU CUOTA, G.O. 19 DE DICIEMBRE DE 2025)
 VI. Tratándose de aeronaves, el impuesto se pagará conforme a lo siguiente:
 TIPO DE VEHÍCULOSCUOTA
 AERONAVES
-Hélice$812.00
-Turbohélice$4,506.00
-Reacción$6,511.00
-HELICÓPTEROS$1,000.00
+Hélice$844.00
+Turbohélice$4,682.00
+Reacción$6,766.00
+HELICÓPTEROS$1,039.00
 (ADICIONADO, G.O. 23 DE DICIEMBRE DE 2019)
 Cuando se tramite el alta en la Ciudad de México, de un vehículo matriculado en otra entidad federativa o por la Federación y ésta se realice en el segundo, tercero o cuarto trimestre del año, se cubrirá el 75%, 50% o 25% de las cuotas señaladas en este artículo, respectivamente.
 (ADICIONADO, G.O. 23 DE DICIEMBRE DE 2019)
