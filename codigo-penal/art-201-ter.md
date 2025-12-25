@@ -1,5 +1,5 @@
 (ADICIONADO, G.O. 27 DE JUNIO DE 2024)
-CAPÍTULO II
+CAPÍTULO III
 VIOLENCIA VICARIA
 (ADICIONADO, G.O. 27 DE JUNIO DE 2024)
 ARTÍCULO 201 TER. A quien mantenga o haya mantenido una relación de matrimonio, concubinato o de hecho con una mujer, y que por sí o por interpósita persona, ejerza violencia física, psicológica, sexual, económica o patrimonial contra ella, utilizando como medio a sus descendientes, ascendientes, personas con discapacidad o enfermedad que se encuentren bajo su cuidado, mediante amenazas, intimidación puesta en peligro o cualesquier acto de violencia, se le impondrán de dos a seis años de prisión, así como pérdida de los derechos que tenga respecto de las víctimas, incluidos los de carácter sucesorio y patria potestad de hijas e hijos.

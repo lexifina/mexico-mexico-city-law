@@ -1,10 +1,6 @@
-(ADICIONADO, G.O. 17 DE ENERO DE 2007)
-ARTÍCULO 201 BIS. Se equipara a la violencia familiar y se sancionará con las mismas penas y medidas de seguridad, al que realice cualquiera de los actos señalados en el artículo anterior en contra de la persona que esté sujeta a su custodia, guarda, protección, educación, instrucción o cuidado o con quien tenga una relación de hecho o la haya tenido en un período hasta de dos años antes de la comisión del acto u omisión.
-Se entenderá por relación de hecho, la que exista entre quienes:
-I. Haga la vida en común, en forma constante y permanente, por un período mínimo de seis meses;
-II. Mantengan una relación de pareja, aunque no vivan en el mismo domicilio;
-III. Se encuentren unidos por vínculos de padrinazgo o madrinazgo;
-IV. Se incorporen a un núcleo familiar aunque no tengan parentesco con ninguno de sus integrantes;
-V. Tengan relación con los hijos de su pareja, siempre que no los hayan procreado en común, y
-VI. Tengan relación con la pareja de alguno de sus progenitores.
-Este delito se perseguirá por querella.
+(REFORMADO, G.O. 24 DE DICIEMBRE DE 2025)
+ARTÍCULO 201 BIS. Se equipara a la violencia familiar entre parientes y se sancionará con las mismas penas y medidas de seguridad a quien realice cualquiera de los actos señalados en el artículo 200 Bis en contra de la persona que esté sujeta a su custodia, guarda, protección, educación, instrucción, cuidado, adopción, tutela o de aquella con quien exista cualquier relación entre quienes:
+I. Se incorporen a un núcleo familiar, aun cuando no exista parentesco con ninguno de sus integrantes;
+II. Mantengan relación con los hijos de su pareja, siempre que no los hayan procreado en común; y
+III. Mantengan relación con la pareja de alguno de sus progenitores.
+Este delito se perseguirá por querella salvo en los casos donde exista violencia física.

@@ -18,7 +18,8 @@ b) La información sobre:
 7. El impacto ecológico de la producción, el procesamiento y el consumo del tabaco, y
 c) El conocimiento de los riesgos para la salud asociados al consumo de tabaco y a la exposición a su humo.
 La información a que se refiere el presente artículo deberá integrarse en el sistema de información sobre adicciones.
+(REFORMADA SU DENOMINACIÓN, G.O. 24 DE DICIEMBRE DE 2025)
 TÍTULO TERCERO
-MEDIDAS PARA LA PROTECCIÓN A LOS NO FUMADORES
+MEDIDAS PARA LA PROTECCIÓN A LAS PERSONAS NO FUMADORAS
 Capítulo Primero
 Prohibiciones

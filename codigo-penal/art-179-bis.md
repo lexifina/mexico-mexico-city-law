@@ -1,2 +1,7 @@
-(ADICIONADO, G.O. 22 DE ENERO DE 2020)
-ARTÍCULO 179 BIS. Se impondrá de cuatro a seis años de prisión y de 500 a 1000 Unidades de Medida y Actualización a quien haciendo uso de medios de radiodifusión, telecomunicaciones, informáticos o cualquier otro medio de transmisión de datos, contacte a una persona menor de dieciocho años de edad, a quien no tenga capacidad de comprender el significado del hecho a persona que no tenga capacidad para resistirlo y le requiera o comparta imágenes, audio o video de actividades sexuales explícitas, actos de connotación sexual o le solicite un encuentro sexual.
+(REFORMADO, G.O. 24 DE DICIEMBRE DE 2025)
+ARTÍCULO 179 BIS. A quien por sí o a través de interpósita persona, haciendo uso de medios tecnológicos, informáticos, de radiodifusión o de transmisión de datos, contacte a una persona menor de dieciocho años, o a quien no tenga capacidad para comprender el significado del hecho o para resistirlo, con cualquiera de las siguientes finalidades:
+I. Solicitar, enviar, intercambiar o intentar obtener imágenes, audios o videos con contenido sexual explícito, o con connotación sexual;
+II. Solicitar, proponer o concertar un encuentro sexual, físico o virtual, con la víctima;
+III. Inducir, persuadir, coaccionar o sugerir a la víctima la ejecución de actos sexuales o de exhibición corporal, con independencia de que se realicen o no, se le impondrá de cuatro a seis años de prisión y de quinientos a mil días de multa y la obligación de acudir a servicios reeducativos, los que en ningún caso excederán del tiempo impuesto en la pena de prisión, independientemente de las sanciones que correspondan por cualquier otro delito.
+La pena se aumentará hasta en una mitad cuando el sujeto activo se haga pasar por menor de edad, servidor público, docente, persona de confianza o bien, cuando utilice una identidad falsa para lograr el contacto.
+Este delito se perseguirá de oficio.

@@ -1,4 +1,4 @@
-LEY DEL INSTITUTO PARA LA SEGURIDAD DE LAS CONSTRUCCIONES DEL DISTRITO FEDERAL
+LEY DEL INSTITUTO PARA LA SEGURIDAD DE LAS CONSTRUCCIONES DE LA CIUDAD DE MÉXICO
 Ley publicada en la Gaceta Oficial del Distrito Federal, el viernes 5 de noviembre de 2010.
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)
 MARCELO LUIS EBRARD CASAUBON, Jefe de Gobierno del Distrito Federal, a sus habitantes sabed:

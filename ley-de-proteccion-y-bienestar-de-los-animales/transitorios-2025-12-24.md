@@ -1,0 +1,5 @@
+G.O. 24 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN EL NUMERAL 5, DEL APARTADO B DEL ARTÍCULO 8; LOS NUMERALES 1, 2 Y PÁRRAFO PRIMERO E INCISO C) DEL NUMERAL 3, DEL APARTADO B DEL ARTÍCULO 13; EL INCISO E) DEL NUMERAL 2 DEL ARTÍCULO 23 DE LA CONSTITUCIÓN POLÍTICA DE LA CIUDAD DE MÉXICO; ASIMISMO, SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 1 DE LA LEY DE PROTECCIÓN Y BIENESTAR DE LOS ANIMALES DE LA CIUDAD DE MÉXICO".]
+PRIMERO: Remítase a la persona titular de la Jefatura de Gobierno para su publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO: El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO: Las obligaciones que, en su caso se generen con motivo de la entrada en vigor del presente Decreto, se cubrirán con cargo al presupuesto aprobado a las Unidades Responsables del Gasto para el presente ejercicio fiscal y subsecuentes, por lo que no se autorizarán recursos adicionales.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 24 DE DICIEMBRE DE 2025)
+Artículo 48 Ter. Las personas titulares de las Fiscalías, Órgano de Política Criminal, así como de las Coordinaciones Generales con facultades de investigación y persecución de delitos, tendrán la calidad de Ministerios Públicos, por lo que contarán con las atribuciones y funciones otorgadas a este en la Constitución Política de los Estados Unidos Mexicanos, el Código Nacional de Procedimientos Penales, la Constitución Política de la Ciudad de México, el Código Penal para el Distrito Federal, y demás normativa aplicable.

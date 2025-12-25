@@ -1,12 +1,8 @@
-(ADICIONADO, G.O. 18 DE MARZO DE 2011)
-ARTÍCULO 200 BIS. El delito a que se refiere el artículo anterior se perseguirá por querella, excepto cuando:
-I. La víctima sea menor de edad, incapaz o no tenga la capacidad de comprender el significado del hecho.
-II. La víctima presente una discapacidad sensorial, física o mental, total o parcial, temporal o permanente.
-(ADICIONADA, G.O. 27 DE MAYO DE 2022)
-III. La víctima sea una persona de sesenta años en adelante;
-IV. La víctima sea una mujer en estado de embarazo o durante los tres meses posteriores al parto.
-V. Se cometa con la participación de dos o más personas.
-VI. Se cometa con el uso de armas de fuego o punzocortantes.
-VII. Se deje cicatriz permanente en alguna parte del cuerpo.
-VIII. Se tengan documentados antecedentes o denuncia de violencia familiar cometidos por el mismo agresor contra la víctima, y
-IX. Exista imposibilidad material de la víctima de denunciar.
+(ADICIONADO, G.O. 24 DE DICIEMBRE DE 2025)
+CAPÍTULO II
+VIOLENCIA FAMILIAR
+(REFORMADO, G.O. 24 DE DICIEMBRE DE 2025)
+ARTÍCULO 200 BIS. A quien, con independencia del lugar en el que ocurra, por acción u omisión, ejerza cualquier tipo de violencia, ya sea física, psicoemocional, sexual, económica, patrimonial o sobre los derechos reproductivos, en contra de la o el pariente consanguíneo en línea recta ascendente o descendente sin límite de grado, se le impondrán de uno a seis años de prisión, pérdida de los derechos que tenga respecto de la víctima incluidos los de carácter sucesorio, patria potestad, tutela y los de alimentos, y se decretarán las medidas de protección conforme a lo establecido por este Código y la legislación de procedimientos penales aplicable.
+Además, se sujetará al responsable a servicios reeducativos, los que en ningún caso excederán del tiempo impuesto en la pena de prisión, independientemente de las sanciones que correspondan por cualquier otro delito.
+No se justifica en ningún caso como tratamiento médico o rehabilitación la violencia hacia cualquier persona con algún trastorno mental, ni como forma de educación o formación hacia los menores.
+Este delito se perseguirá por querella salvo en los casos donde exista violencia física.

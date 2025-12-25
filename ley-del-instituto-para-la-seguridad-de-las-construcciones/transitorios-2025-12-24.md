@@ -1,0 +1,4 @@
+G.O. 24 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE MODIFICA LA DENOMINACIÓN Y SE REFORMAN LOS ARTÍCULOS 1, 2 FRACCIONES V, VII, IX, X, Y XIII, 3 FRACCIÓN II, 5 FRACCIONES I, XVII, XIX Y XX, 6 FRACCIÓN I, NUMERAL 1, INCISO B, SE ADICIONA UN INCISO F NUMERAL 2, 7 FRACCIONES II, IX, 8, 9 FRACCIÓN XII, XIII (SIC), 10 ÚLTIMO PÁRRAFO, 13 FRACCIONES II, III, 15, 19 FRACCIÓN III, 22, 23 Y 24, TODOS DE LA LEY DEL INSTITUTO PARA LA SEGURIDAD DE LAS CONSTRUCCIONES DEL DISTRITO FEDERAL".]
+PRIMERO.- Remítase a la Persona Titular de la Jefatura de Gobierno de la Ciudad de México para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.

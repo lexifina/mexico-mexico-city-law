@@ -6,11 +6,11 @@ I. La promoción de la salud, que considerará el desarrollo de actitudes que fa
 II. La orientación a la población sobre los riesgos a la salud por el consumo de tabaco y la exposición a su humo;
 (ADICIONADA, G.O. 1 DE NOVIEMBRE DE 2007)
 III. La orientación a la población para que se abstenga de fumar;
-(ADICIONADA, G.O. 1 DE NOVIEMBRE DE 2007)
-IV. La detección temprana del fumador y su atención oportuna;
+(REFORMADA, G.O. 24 DE DICIEMBRE DE 2025)
+IV. La detección temprana de la persona fumadora y su atención oportuna;
 (ADICIONADA, G.O. 1 DE NOVIEMBRE DE 2007)
 V. La promoción de espacios libres de humo de tabaco;
-(ADICIONADA, G.O. 1 DE NOVIEMBRE DE 2007)
-VI. El fortalecimiento de la vigilancia sobre el cumplimiento de la regulación sanitaria relativa a las restricciones para la venta de productos derivados del tabaco; y
+(REFORMADA, G.O. 24 DE DICIEMBRE DE 2025)
+VI. El fortalecimiento de la vigilancia sobre el cumplimiento de la regulación sanitaria relativa a las restricciones para la venta de productos derivados del tabaco, y con relación a la prohibición de la producción, distribución y enajenación de cigarrillos electrónicos, vapeadores y demás sistemas o dispositivos electrónicos análogos;
 (ADICIONADA, G.O. 1 DE NOVIEMBRE DE 2007)
 VII. El establecimiento de políticas tendientes a disminuir el acceso a los productos derivados del tabaco.

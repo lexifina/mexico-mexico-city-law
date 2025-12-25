@@ -1,0 +1,4 @@
+G.O. 24 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMAN LA DENOMINACIÓN DE LA "LEY DE RESPONSABILIDAD PATRIMONIAL DEL DISTRITO FEDERAL", PARA QUEDAR COMO "LEY DE RESPONSABILIDAD PATRIMONIAL DE LA CIUDAD DE MÉXICO"; Y LOS ARTÍCULOS 1, 2 PRIMER PÁRRAFO, 3, FRACCIONES II, III, IV, VII, XI, XII, 6 PRIMER PÁRRAFO, 7, 8, 9 PRIMER PÁRRAFO, 12, 20 SEGUNDO PÁRRAFO, 21 PRIMER PÁRRAFO, 23 PRIMER PÁRRAFO, 24, 25, 30, 31 FRACCIÓN I, 33, 34 FRACCIÓN V Y ÚLTIMO PÁRRAFO, 38, 40 Y 41".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.

@@ -1,2 +1,1 @@
-(ADICIONADO, G.O. 2 DE MARZO DE 2021)
-Artículo 23 BIS. Las autoridades en la materia publicarán los lineamientos y guías necesarias para facilitar la elaboración del estudio de viabilidad técnica económica y financiera,_a las personas solicitantes. Las instituciones académicas podrán firmar convenios de colaboración con el Consejo Local para la Competitividad de la Micro, Pequeña y Mediana Empresa, a fin de realizar estudios académicos para la constitución e impulso de las Micro, Pequeñas y Medianas Empresas.
+Artículo 23 BIS.- (DEROGADO, G.O. 24 DE DICIEMBRE DE 2025)
