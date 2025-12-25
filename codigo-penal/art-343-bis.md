@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2011)
-ARTÍCULO 343 BIS. Se le impondrán de tres a nueve años de prisión y de 1,000 a 5,000 días multa, a quien dolosamente haga un uso distinto al permitido del uso de suelo u obtenga un beneficio económico derivado de éstas conductas.
+(REFORMADO PRIMER PÁRRAFO, G.O. 24 DE DICIEMBRE DE 2025)
+ARTÍCULO 343 BIS. Se le impondrán de tres a nueve años de prisión y multa de mil a cinco mil unidades de medida y actualización, a quien dolosamente haga un uso distinto al permitido del uso de suelo u obtenga un beneficio económico derivado de estas conductas.
 (ADICIONADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2011)
 Las penas previstas en el párrafo anterior se aumentarán en una tercera parte, cuando la conducta se lleve a cabo en, o afecte cualquiera de los siguientes lugares:
 (ADICIONADA, G.O. 13 DE ENERO DE 2004)

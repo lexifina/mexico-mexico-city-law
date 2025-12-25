@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.O. 27 DE JUNIO DE 2011)
-ARTÍCULO 344 BIS. Se le impondrán de 6 meses a 5 años de prisión y de 500 a 2,000 días multa, a quien extraiga suelo o cubierta vegetal, piedra o tierra natural, por un volumen igual o mayor a dos metros cúbicos, de:
+(REFORMADO PRIMER PÁRRAFO, G.O. 24 DE DICIEMBRE DE 2025)
+ARTÍCULO 344 BIS. Se le impondrán de dos a siete años de prisión y multa de mil a dos mil quinientas unidades de medida y actualización, a quien extraiga suelo o cubierta vegetal, piedra o tierra natural, por un volumen igual o mayor a dos metros cúbicos, de:
 (ADICIONADA, G.O. 13 DE ENERO DE 2004)
 I. Un área natural protegida o área de valor ambiental de competencia del Distrito Federal, de conformidad con las disposiciones jurídicas aplicables;
 (ADICIONADA, G.O. 13 DE ENERO DE 2004)
