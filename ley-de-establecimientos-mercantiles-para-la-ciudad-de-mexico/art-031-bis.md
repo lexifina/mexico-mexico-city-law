@@ -1,5 +1,5 @@
 (ADICIONADO, G.O. 19 DE ENERO DE 2023)
-Artículo 31 Bis. Los titulares de establecimientos mercantiles que presenten por medio del Sistema una Solicitud de Permiso para el Funcionamiento de Establecimiento Mercantil de Impacto zonal, proporcionarán la siguiente información:
+Artículo 31 Bis.- Los titulares de establecimientos mercantiles que presenten por medio del Sistema una Solicitud de Permiso para el Funcionamiento de Establecimiento Mercantil de Impacto zonal, proporcionarán la siguiente información:
 I. Datos del Interesado: Nombre o razón social del solicitante, así como domicilio para oír y recibir notificaciones y dirección de correo electrónico. En caso de que el solicitante sea persona física proporcionará los datos de la credencial para votar con fotografía.
 Tratándose de personas morales, datos de su Representante Legal, datos del acta constitutiva registrada o con registro en trámite y documento con el que acredite su personalidad.
 Cuando el solicitante sea extranjero, los datos de la autorización expedida por la Secretaría de Gobernación, conforme a la cual se le permite llevar a cabo la actividad de que se trate;
