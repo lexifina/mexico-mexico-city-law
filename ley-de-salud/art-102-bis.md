@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 12 DE MAYO DE 2026)
+Artículo 102 Bis. La Secretaría en coordinación con las diversas instituciones de salud públicas en la Ciudad de México, promoverá la capacitación ética, el respeto a los derechos humanos, el cuidado de la salud mental, así como la eliminación de toda forma de discriminación y maltrato hacia las personas profesionales de la salud, en su etapa formativa o de especialización.
