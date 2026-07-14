@@ -1,0 +1,5 @@
+(ADICIONADO, G.O. 13 DE JULIO DE 2026)
+Artículo 97 Ter. Además de las atribuciones que le corresponden en materia de control interno, la Contraloría Interna fungirá como Autoridad Garante en el ámbito del Congreso de la Ciudad de México y de la Auditoría Superior de la Ciudad de México, en términos de lo dispuesto en el Título Segundo, Capítulo II, denominado "De las autoridades garantes y la autoridad garante local", de la Ley de Transparencia para el Acceso y Socialización de la Información de la Ciudad de México, así como de la normativa aplicable en materia de protección de datos personales.
+El ejercicio de dichas atribuciones tendrá por objeto garantizar el derecho de acceso a la información pública, la protección de datos personales y el adecuado manejo de la información en posesión del Congreso y de la Auditoría Superior de la Ciudad de México, conforme a las disposiciones legales aplicables.
+CAPÍTULO V
+De la Tesorería

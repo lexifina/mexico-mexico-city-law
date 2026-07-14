@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 13 DE JULIO DE 2026)
+Artículo 16 Ter. Además de las atribuciones que le corresponden en materia de control interno, el Órgano Interno de Control ejercerá las funciones que, en el ámbito de su competencia, le correspondan como autoridad garante, conforme a la Ley de Transparencia para el Acceso y Socialización de la Información de la Ciudad de México, así como de la normativa aplicable en materia de protección de datos personales, para garantizar el ejercicio del derecho de acceso a la información pública, la privacidad y la protección de datos personales.
