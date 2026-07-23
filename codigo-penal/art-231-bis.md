@@ -1,0 +1,3 @@
+(ADICIONADO, G.O. 22 DE JULIO DE 2026)
+ARTÍCULO 231 BIS. A quien, mediante engaño digital consistente en la creación o uso de mensajes, páginas electrónicas, dominios, aplicaciones o cualquier otra interfaz tecnológica que simule ser legítima, induzca a una persona a revelar, capturar o proporcionar datos personales, financieros o de autenticación, con la finalidad de obtener un beneficio indebido para sí o para un tercero o para causar un perjuicio, se le impondrán de tres a seis años de prisión y de doscientas a seiscientas unidades de medida y actualización de multa.
+Las penas previstas en este artículo se incrementarán hasta en una mitad cuando la víctima sea persona con discapacidad o persona mayor, o cuando, para su comisión, afecte a persona menor de edad.
