@@ -1,0 +1,5 @@
+G.O. 23 DE JULIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE REFORMA LA DENOMINACIÓN DE LA LEY PARA QUEDAR COMO "LEY PARA LA PROTECCIÓN INTEGRAL DE PERSONAS DEFENSORAS DE DERECHOS HUMANOS Y PERIODISTAS DE LA CIUDAD DE MÉXICO"; SE REFORMA EL PÁRRAFO PRIMERO Y LAS FRACCIONES I, II, III Y IV DEL ARTÍCULO 1; EL ARTÍCULO 3; LAS FRACCIONES I, II DEL ARTÍCULO 5; SE ADICIONA LA FRACCIÓN XX BIS DEL ARTÍCULO 5; SE REFORMA LAS FRACCIONES I, II, III, IV, DEL ARTÍCULO 7".]
+PRIMERO. Remítase a la persona titular de la Jefatura de Gobierno para su promulgación y publicación en la Gaceta Oficial de la Ciudad de México.
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en la Gaceta Oficial de la Ciudad de México.
+TERCERO. Las obligaciones que, en su caso se generen con motivo de la entrada en vigor del presente Decreto, se cubrirán con cargo al presupuesto aprobado a las Unidades Responsables del Gasto para el presente ejercicio fiscal y subsecuente, por lo que no autorizarán recursos adicionales para tales efectos.

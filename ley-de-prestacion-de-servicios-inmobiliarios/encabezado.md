@@ -1,4 +1,4 @@
-LEY DE PRESTACIÓN DE SERVICIOS INMOBILIARIOS DEL DISTRITO FEDERAL
+LEY DE PRESTACIÓN DE SERVICIOS INMOBILIARIOS PARA LA CIUDAD DE MÉXICO
 Ley publicada en la Gaceta Oficial del Distrito Federal, el jueves 23 de agosto de 2012.
 DECRETO POR EL SE EXPIDE LA LEY DE PRESTACIÓN DE SERVICIOS INMOBILIARIOS DEL DISTRITO FEDERAL
 (Al margen superior un escudo que dice: Ciudad de México.- Capital en Movimiento)

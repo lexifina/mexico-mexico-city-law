@@ -1,6 +1,7 @@
 (ADICIONADO, G.O. 14 DE MARZO DE 2014)
 Artículo 16 Bis. Las personas morales que como Profesionales Inmobiliarios tendrán las siguientes obligaciones:
-I. Cumplir con el Código de Ética para la prestación de Servicios Inmobiliarios del Distrito Federal.
+(REFORMADA, G.O. 23 DE JULIO DE 2026)
+I. Cumplir con el Código de Ética para la prestación de Servicios Inmobiliarios aplicable a la Ciudad de México.
 II. Conducirse con honestidad y ética profesional, y proteger los intereses legales y financieros de sus clientes y de las personas con quien tengan trato de negocios, respecto de los Servicios Inmobiliarios en que intervengan.
 III. Abstenerse de exponer a sus clientes en situaciones de inseguridad legal o financiera en los Servicios Inmobiliarios en las que los apoyen.
 IV. Extender en pagos anticipados o depósitos en dinero derivados de la prestación de sus servicios o por trámites propios de los Servicios Inmobiliarios, factura, recibo fiscal u otro documento legal que ampare dichos pagos o depósitos.
