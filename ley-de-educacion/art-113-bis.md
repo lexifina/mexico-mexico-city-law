@@ -1,0 +1,2 @@
+(ADICIONADO, G.O. 23 DE JULIO DE 2026)
+Artículo 113.- Bis. El personal docente o con funciones de dirección o supervisión en la educación básica y media superior de las instituciones públicas de la Ciudad, dentro del ámbito de competencia, ante situaciones de violencia en el entorno escolar o de maltrato escolar aplicarán los protocolos de actuación referidos en la Ley para la Promoción de la Convivencia Libre de Violencia en el Entorno Escolar de la Ciudad de México, bajo los principios de diligencia, no revictimización y enfoque de género.
