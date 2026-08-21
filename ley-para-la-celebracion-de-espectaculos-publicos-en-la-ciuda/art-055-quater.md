@@ -10,8 +10,8 @@ III.- Si el solicitante es extranjero deberá presentar la autorización expedid
 IV.- Descripción del juego mecánico o electromecánico que se pretenda instalar o del servicio de entretenimiento que se pretenda prestar o en su caso señalar el tipo de alimentos, artesanías u objetos que se pretenden ofrecer al público; con sus respectivos precios de acceso o venta;
 (ADICIONADA, G.O. 14 DE JUNIO DE 2006)
 V.- El número de metros de la vía pública que pretenda ser ocupado y ubicación precisa;
-(REFORMADA, G.O. 2 DE MARZO DE 2021)
-VI.- Deberán acreditar que cumplen con lo dispuesto en las fracciones II, III, y V del artículo 55 de la Ley de Establecimientos Mercantiles vigente en la Ciudad de México y demostrar que cuentan con una póliza de seguro de responsabilidad civil, para cubrir cualquier eventualidad, riesgo o siniestro que puedan sufrir tanto los usuarios de los juegos como los vecinos de la zona;
+(REFORMADA, G.O. 20 DE AGOSTO DE 2026)
+VI.- Deberán acreditar que cumplen con lo dispuesto en las fracciones II, III, y V del artículo 55 de la Ley de Establecimientos Mercantiles para la Ciudad de México, y demostrar que cuentan con una póliza de seguro de responsabilidad civil, para cubrir cualquier eventualidad, riesgo o siniestro que puedan sufrir tanto los usuarios de los juegos como los vecinos de la zona;
 (ADICIONADA, G.O. 14 DE JUNIO DE 2006)
 VII.- El recibo por el cual se acredita la contratación del servicio de energía eléctrica y/o acreditar que cuentan con una planta generadora de energía eléctrica, así como el escrito por el cual responsabiliza por las averías que se provoquen en las instalaciones y equipos eléctricos tanto públicos como privados, bajo pena de revocación del permiso en caso de incumplimiento, además del respectivo pago de daños y perjuicios.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.O. 2 DE MARZO DE 2021)

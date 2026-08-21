@@ -2,8 +2,8 @@
 Artículo 55-TER.- Los interesados en obtener permisos para la realización de ferias en la vía pública de los pueblos, barrios y colonias de la Ciudad de México solicitarán con 20 días hábiles de anticipación a su realización, el permiso correspondiente a la Alcaldía, para lo cual el escrito de solicitud deberá contener los siguientes datos:
 (ADICIONADO, G.O. 14 DE JUNIO DE 2006)
 a) Nombre, domicilio para oír y recibir notificaciones, Registro Federal de Contribuyentes y nacionalidad;
-(ADICIONADO, G.O. 14 DE JUNIO DE 2006)
-b) Nombre de las personas autorizadas para oír y recibir notificaciones, en los términos de la Ley de Procedimiento Administrativo del Distrito Federal;
+(REFORMADO, G.O. 20 DE AGOSTO DE 2026)
+b) Nombre de las personas autorizadas para oír y recibir notificaciones, en los términos de la Ley de Procedimiento Administrativo de la Ciudad de México;
 (ADICIONADO, G.O. 14 DE JUNIO DE 2006)
 c) Si el solicitante es extranjero, deberá presentar la autorización expedida por la Secretaría de Gobernación, por la que se le permita llevar a cabo la actividad de que se trate.
 (REFORMADO, G.O. 2 DE MARZO DE 2021)
