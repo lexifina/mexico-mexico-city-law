@@ -1,0 +1,11 @@
+{
+  "path": "mx-cmx",
+  "code": "MX-CMX",
+  "name": "Mexico City",
+  "level": "federal entity",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-mexico-city-law",
+  "build": "built: constitution, codes and laws (167 ordenamientos, 1633 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
